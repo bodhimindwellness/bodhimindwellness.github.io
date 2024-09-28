@@ -12,7 +12,7 @@ permalink: /accueil/
 
 |<a href="https://tyltonline.github.io/contact/"> ![Cours icone](/assets/images/cours3.png "Cours icone") </a> | Voulez-vous apprendre, comprendre et pratiquer la spiritualité dans un espace sûr, en toute confiance, à votre rythme?[Cliquez ici](https://tyltonline.github.io/contact/)|
 
-![Reservez une séance](/assets/images/Introgreen.png "Reservez une séance")
+<a href="https://tyltonline.github.io/contact/"> ![Click here](/assets/images/butterfly.png "Click here") </a>
 
-[Plus d'info](https://tyltonline.github.io/offres/)
+[Plus d'info/More info](https://tyltonline.github.io/offres/)
 
