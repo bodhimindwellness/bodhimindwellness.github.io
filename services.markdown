@@ -76,21 +76,22 @@ Register for a course by clicking on the following button.
 More information to come in due course
 
 ![Flower of life](/assets/images/flower-life-colorful-illustration-white-background-1.png "Flower of life")
+
 <i> Français </i>
 
-## I. Gratuit
-Apportons la paix et la compassion pour nous-mêmes et pour tous les êtres sensibles !
+## I. <i>Gratuit</i>
+<i>Apportons la paix et la compassion pour nous-mêmes et pour tous les êtres sensibles !</i>
 
-Sessions mensuelles de chant en ligne.
+<i>Sessions mensuelles de chant en ligne.</i>
 
 <a href="https://tyltonline.github.io/form/2024/03/17/universal-chanting.html"> ![Inscrivez vous](/assets/images/inscrivezvousbout.png "Inscrivez vous")
 </a>
  
-## II. Coaching de vie et thérapie
-Nos psychopracticiennes et coachs en bien-être vous guideront à travers vos besoins actuels. Utilisant les méthodes de counselling, elles vont fournir une écoute sans jugement dans un environnement de confiance et confortable avec un fondement d'empathie où vous allez avancer à votre rythme. Selon vos besoins, elles peuvent aussi employer les modalités de coaching pour vous guider activement vers votre objectif. La thérapeute de votre choix travaillera avec vous pour démêler votre propre labyrinthe. 
+## II. <i>Coaching de vie et thérapie</i>
+<i>Nos psychopracticiennes et coachs en bien-être vous guideront à travers vos besoins actuels. Utilisant les méthodes de counselling, elles vont fournir une écoute sans jugement dans un environnement de confiance et confortable avec un fondement d'empathie où vous allez avancer à votre rythme. Selon vos besoins, elles peuvent aussi employer les modalités de coaching pour vous guider activement vers votre objectif. La thérapeute de votre choix travaillera avec vous pour démêler votre propre labyrinthe.</i> 
 
-  + En ligne
-  + En présentiel à Bras Panon, Ile de la Réunion
+  + <i>En ligne</i>
+  + <i>En présentiel à Bras Panon, Ile de la Réunion</i>
   
   C’est le moment... commençons le voyage vers la paix et le bonheur!
   
