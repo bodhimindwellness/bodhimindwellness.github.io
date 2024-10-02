@@ -79,7 +79,7 @@ More information to come in due course
 
 <i> Français </i>
 
-## I. <i>Gratuit</i>
+## <i>I. Gratuit</i>
 <i>Apportons la paix et la compassion pour nous-mêmes et pour tous les êtres sensibles !</i>
 
 <i>Sessions mensuelles de chant en ligne.</i>
@@ -87,15 +87,15 @@ More information to come in due course
 <a href="https://tyltonline.github.io/form/2024/03/17/universal-chanting.html"> ![Inscrivez vous](/assets/images/inscrivezvousbout.png "Inscrivez vous")
 </a>
  
-## II. <i>Coaching de vie et thérapie</i>
+## <i>II. Coaching de vie et thérapie</i>
 <i>Nos psychopracticiennes et coachs en bien-être vous guideront à travers vos besoins actuels. Utilisant les méthodes de counselling, elles vont fournir une écoute sans jugement dans un environnement de confiance et confortable avec un fondement d'empathie où vous allez avancer à votre rythme. Selon vos besoins, elles peuvent aussi employer les modalités de coaching pour vous guider activement vers votre objectif. La thérapeute de votre choix travaillera avec vous pour démêler votre propre labyrinthe.</i> 
 
   + <i>En ligne</i>
   + <i>En présentiel à Bras Panon, Ile de la Réunion</i>
   
-  C’est le moment... commençons le voyage vers la paix et le bonheur!
+  <i>C’est le moment... commençons le voyage vers la paix et le bonheur!</i>
   
-  Réservez une séance de coaching en cliquant le bouton suivant.
+  <i>Réservez une séance de coaching en cliquant le bouton suivant.</i>
  
 <a href="https://tyltonline.github.io/contact/"> ![Coaching bouton](/assets/images/coachingbout.png "Coaching bouton")
 </a>
@@ -103,25 +103,25 @@ More information to come in due course
 ![A counselling session](/assets/images/counseling2.jpg "A counselling session")
 
 
-## III. Séance de yoga therapie mesurée 
+## <i>III. Séance de yoga therapie mesurée</i> 
 
- La yogathérapie mesurée est le développement de techniques de mesure objectives pour identifier les carences dans les bio-méridiens et valider l’efficacité des pratiques de style de vie, basées sur la philosophie et les principes du yoga et des méthodes de médecine traditionnelle (principalement des systèmes de médecine chinoise et ayurvédique).
+ <i>La yogathérapie mesurée est le développement de techniques de mesure objectives pour identifier les carences dans les bio-méridiens et valider l’efficacité des pratiques de style de vie, basées sur la philosophie et les principes du yoga et des méthodes de médecine traditionnelle (principalement des systèmes de médecine chinoise et ayurvédique).</i>
 
 
  <iframe width="560" height="315" src="https://www.youtube.com/embed/O-ji9gRpC1A?si=MBzyRzFfF8LyY0aZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
-Réservez une séance de yogathérapie mesurée en cliquant le bouton suivant.
+<i>Réservez une séance de yogathérapie mesurée en cliquant le bouton suivant.</i>
 
 <a href="https://tyltonline.github.io/contact/"> ![Yogathérapie mesurée bouton](/assets/images/ytmbout.png "Yogathérapie mesurée bouton")
 </a>
 
 
-## IV. Cours 
+## <i>IV. Cours</i>
 
-### a. Yoga en individuel et en groupe
+### <i>a. Yoga en individuel et en groupe</i>
 
-Séance de yoga individuel 50€ - 1,5 heures*
+<i>Séance de yoga individuel 50€ - 1,5 heures*
 
 | Cours en groupe | Description | Côut* |
 | ----------- | ----------- | ----- |
@@ -134,27 +134,27 @@ Séance de yoga individuel 50€ - 1,5 heures*
 
 *frais additionnels pour les cours à domicile.
 
-Réservez une séance de yoga en cliquant le bouton suivant. 
+Réservez une séance de yoga en cliquant le bouton suivant.</i> 
 
 <a href="https://tyltonline.github.io/contact/"> ![Yoga bouton](/assets/images/yogabout.png "Yoga bouton")
 </a>
 
-### b. Développement Personnel et Spirituel
+### <i>b. Développement Personnel et Spirituel
 #### 1. Purification des chakras et karma
 
 #### 2. Initiation à la pratique de Tara
 
 #### 3. Activation des champs de protection de Tara
 
-#### 4. Groupe d'étude sur le féminisme et la spiritualité
+#### 4. Groupe d'étude sur le féminisme et la spiritualité</i>
 
-Inscrivez vous dans un cours en cliquant le bouton suivant. 
+<i>Inscrivez vous dans un cours en cliquant le bouton suivant.</i> 
 
  <a href="https://tyltonline.github.io/contact/"> ![Cours bouton](/assets/images/coursbout.png "Cours bouton")
 </a>
 
-## V. Retraites
-Plus d’information à venir en temps et lieu
+## <i>V. Retraites
+Plus d’information à venir en temps et lieu</i>
 
 
 
