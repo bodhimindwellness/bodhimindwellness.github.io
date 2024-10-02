@@ -77,7 +77,7 @@ More information to come in due course
 
 ![Flower of life](/assets/images/flower-life-colorful-illustration-white-background-1.png "Flower of life")
 
-<i> Français </i>
+
 
 ## <i>I. Gratuit</i>
 <i>Apportons la paix et la compassion pour nous-mêmes et pour tous les êtres sensibles !</i>
@@ -121,7 +121,7 @@ More information to come in due course
 
 ### <i>a. Yoga en individuel et en groupe</i>
 
-<i>Séance de yoga individuel 50€ - 1,5 heures*
+<i>Séance de yoga individuel 50€ - 1,5 heures*</i>
 
 | Cours en groupe | Description | Côut* |
 | ----------- | ----------- | ----- |
@@ -132,29 +132,29 @@ More information to come in due course
 |Yoga sensible aux traumatismes | pour le stress post-traumatique |15€ séance   |
 |                           |                   |   50€ mois    |
 
-*frais additionnels pour les cours à domicile.
+<i>*frais additionnels pour les cours à domicile.
 
 Réservez une séance de yoga en cliquant le bouton suivant.</i> 
 
 <a href="https://tyltonline.github.io/contact/"> ![Yoga bouton](/assets/images/yogabout.png "Yoga bouton")
 </a>
 
-### <i>b. Développement Personnel et Spirituel
-#### 1. Purification des chakras et karma
+### <i>b. Développement Personnel et Spirituel</i>
+#### <i>1. Purification des chakras et karma</i>
 
-#### 2. Initiation à la pratique de Tara
+#### <i>2. Initiation à la pratique de Tara</i>
 
-#### 3. Activation des champs de protection de Tara
+#### <i>3. Activation des champs de protection de Tara</i>
 
-#### 4. Groupe d'étude sur le féminisme et la spiritualité</i>
+#### <i>4. Groupe d'étude sur le féminisme et la spiritualité</i>
 
 <i>Inscrivez vous dans un cours en cliquant le bouton suivant.</i> 
 
  <a href="https://tyltonline.github.io/contact/"> ![Cours bouton](/assets/images/coursbout.png "Cours bouton")
 </a>
 
-## <i>V. Retraites
-Plus d’information à venir en temps et lieu</i>
+## <i>V. Retraites</i>
+<i>Plus d’information à venir en temps et lieu</i>
 
 
 
