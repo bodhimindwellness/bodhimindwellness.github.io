@@ -4,7 +4,8 @@ title: Services
 permalink: /Services/
 ---
 <i> Faire défiler pour la version française </i>
-## Free
+
+## I. Free
  Let's generate peace and compassion for ourselves and all sentient beings!
  Monthly online chanting sessions. Subscribe by clicking on the following button
 
@@ -12,7 +13,7 @@ permalink: /Services/
 </a>
 
 
-## Counseling
+## II. Life Coaching
 Our wellness coaches will guide you through your current needs. Using counselling methods, they will provide non-judgmental listening in a safe and comfortable environment with a foundation of empathy where you will move at your own pace. Depending on your needs, they can also use coaching methods to actively guide you to attain your set goal. The therapist of your choice will work with you to untangle your own maze.
   + Online
   + Face to face at Bras Panon, Ile de la Réunion
@@ -22,7 +23,7 @@ Our wellness coaches will guide you through your current needs. Using counsellin
 
 
 
-## Yoga therapy sessions
+## III. Yoga therapy sessions
  Measured Yoga Therapy is the development of objective measurement techniques to
 identify health deficiencies and validate effectiveness of non-invasive lifestyle practices
 based on philosophy and principles of yoga and traditional medicine methods (principally
@@ -34,6 +35,7 @@ Book a session of Measured Yoga Therapy by clicking on the following button.
 
 <a href="https://docs.google.com/forms/d/e/1FAIpQLSccfTQDszKqBlyytArpcvOY32NywZY8rRkNvjiObhijEozDjw/viewform?usp=sf_link"> ![Measured Yoga Therapy Button](/assets/images/MYTbutton.png "Measured Yoga Therapy Button")
 </a>
+
 ## IV. Courses
 
 ### a. Yoga classes
@@ -132,9 +134,9 @@ More information to come in due course
 |Yoga sensible aux traumatismes | pour le stress post-traumatique |15€ séance   |
 |                           |                   |   50€ mois    |
 
-<i>*frais additionnels pour les cours à domicile.
+<i>*frais additionnels pour les cours à domicile.</i>
 
-Réservez une séance de yoga en cliquant le bouton suivant.</i> 
+<i>Réservez une séance de yoga en cliquant le bouton suivant.</i> 
 
 <a href="https://tyltonline.github.io/contact/"> ![Yoga bouton](/assets/images/yogabout.png "Yoga bouton")
 </a>
