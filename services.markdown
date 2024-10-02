@@ -132,9 +132,9 @@ More information to come in due course
 |Yoga sensible aux traumatismes | pour le stress post-traumatique |15€ séance   |
 |                           |                   |   50€ mois    |
 
-<i>*frais additionnels pour les cours à domicile.
+<i>*frais additionnels pour les cours à domicile.</i>
 
-Réservez une séance de yoga en cliquant le bouton suivant.</i> 
+<i>Réservez une séance de yoga en cliquant le bouton suivant.</i> 
 
 <a href="https://tyltonline.github.io/contact/"> ![Yoga bouton](/assets/images/yogabout.png "Yoga bouton")
 </a>
