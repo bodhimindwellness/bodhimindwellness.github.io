@@ -3,7 +3,7 @@ layout: page
 title: Team
 permalink: /Team/
 ---
-Faire défiler pour la version française
+<i> Faire défiler pour la version française </i>
 
 ![Who we are](/assets/images/introeng.png "Who we are")
 
@@ -21,6 +21,7 @@ Faire défiler pour la version française
 [Follow Danitza sur Instagram](https://www.instagram.com/helpinghand_mu?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw%3D%3D)
 <a href="https://tyltonline.github.io/contact/"> ![Click here](/assets/images/danitzabannereng.png "Click here") </a>
 
+<i> Français </i>
 
 ![Qui nous sommes](/assets/images/quinoussommes.png "Qui nous sommes")
 

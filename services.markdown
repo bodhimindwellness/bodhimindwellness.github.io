@@ -3,7 +3,7 @@ layout: page
 title: Services
 permalink: /Services/
 ---
-
+<i> Faire défiler pour la version française </i>
 ## Free
  Let's generate peace and compassion for ourselves and all sentient beings!
  Monthly online chanting sessions. Subscribe by clicking on the following button
@@ -75,7 +75,8 @@ Register for a course by clicking on the following button.
 ## V. Retreats
 More information to come in due course
 
-
+![Flower of life](/assets/images/flower-life-colorful-illustration-white-background-1.png "Flower of life")
+<i> Français </i>
 
 ## I. Gratuit
 Apportons la paix et la compassion pour nous-mêmes et pour tous les êtres sensibles !
@@ -156,5 +157,5 @@ Plus d’information à venir en temps et lieu
 
 
 
-![Flower of life](/assets/images/flower-life-colorful-illustration-white-background-1.png "Flower of life")
+
 
