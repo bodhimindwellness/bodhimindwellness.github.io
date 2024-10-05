@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RxHLv1_90fM?si=1sythm-UN-GjNtHE?autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ucoAk3RgWL4?autoplay=1&mute=1" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Retreats video](/assets/images/RetreatsVideo.mp4 "Retreats video")
 
