@@ -4,9 +4,7 @@ title: About
 permalink: /about/
 ---
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ucoAk3RgWL4?autoplay=1&mute=1" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
-[Retreats video](/assets/images/RetreatsVideo.mp4 "Retreats video")
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ucoAk3RgWL4?autoplay=1&mute=1&loop=1&playlist=ucoAk3RgWL4" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register here](https://tyltonline.github.io/contact/)
 
