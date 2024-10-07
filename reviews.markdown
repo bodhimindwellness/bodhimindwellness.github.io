@@ -1,8 +1,9 @@
 ---
 layout: page
-title: Témoignages
-permalink: /témoignages/
+title: Reviews
+permalink: /reviews/
 ---
+
 THIS IS A REVIEW 
 SECOND REVIEW
 THIRD REVIEW
