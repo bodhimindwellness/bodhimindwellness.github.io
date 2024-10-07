@@ -1,7 +1,0 @@
----
-layout: post
-title:  "Welcome!"
-date:   2023-12-12 10:36:11 +0400
-categories: jekyll update
----
-Welcome to your transformation towards a better self!
