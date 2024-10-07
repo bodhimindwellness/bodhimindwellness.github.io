@@ -18,11 +18,11 @@ permalink: /about/
 
 |<a href="https://tyltonline.github.io/contact/"> ![MYTicon](/assets/images/MYTicon.png "MYTicon") </a> | Would you like to practice easy chair-based techniques to help prevent or control health issues and delay the ageing process?[Register here](https://tyltonline.github.io/contact/)|
 
-<i> Aimeriez-vous une méthode alternative pour complémenter votre traitement actuel afin d'avoir un meilleur contrôle?[Cliquez ici](https://tyltonline.github.io/contact/)</i>
+<i> Aimeriez-vous une méthode alternative pour complémenter votre traitement actuel afin d'avoir un meilleur contrôle? [Cliquez ici](https://tyltonline.github.io/contact/)</i>
 
 |<a href="https://tyltonline.github.io/contact/"> ![Coursesicon](/assets/images/Coursesicon.png "Coursesicon") </a> | Do you want to learn, understand and practice spirituality in a safe space, confidently, at your own pace wherever you are?[Register here](https://tyltonline.github.io/contact/)|
 
-<i>Voulez-vous apprendre, comprendre et pratiquer la spiritualité dans un espace sûr, en toute confiance, à votre rythme?[Cliquez ici](https://tyltonline.github.io/contact/)</i>
+<i>Voulez-vous apprendre, comprendre et pratiquer la spiritualité dans un espace sûr, en toute confiance, à votre rythme? [Cliquez ici](https://tyltonline.github.io/contact/)</i>
 
 
 <a href="https://tyltonline.github.io/contact/"> ![Click here](/assets/images/butterfly.png "Click here") </a>
