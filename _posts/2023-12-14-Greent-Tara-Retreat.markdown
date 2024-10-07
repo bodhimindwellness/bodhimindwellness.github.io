@@ -1,10 +1,13 @@
 ---
 layout: post
-title:  "Son idéal"
+title:  "Greent-Tara-Retreat"
 date:   2023-12-14 10:36:11 +0400
 categories: jekyll update
 ---
-"Atteindre son idéal, c'est le dépasser du même coup" - Nietzsche, Par-delà le bien et le mal.
+
+
+Greent-Tara-Retreat
+august 1 to 3 2025
 
 [jekyll-docs]: https://jekyllrb.com/docs/home
 [jekyll-gh]:   https://github.com/jekyll/jekyll

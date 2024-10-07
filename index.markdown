@@ -4,12 +4,13 @@ layout: default
 
 <div class="home">
 
-  <h1 class="page-heading">Posts</h1>
+  <h1 class="page-heading">Upcoming Retreats</h1>
 
   <ul class="post-list">
     {% for post in site.posts %}
       <li>
-        <span class="post-meta">{{ post.date | date: "%b %-d, %Y" }}</span>
+        <!--<span class="post-meta">published on  {{ post.date | date: "%b %-d, %Y" }}-->
+        <!--This is a comment. Comments are not displayed in the browser-->
 
         <h2>
           <a class="post-link" href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a>

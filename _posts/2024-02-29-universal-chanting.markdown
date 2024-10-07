@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Universal Chanting Form"
-date:   2024-03-17 10:36:11 +0400
+date:   2024-02-29 10:36:11 +0400
 categories: form
 ---
 
