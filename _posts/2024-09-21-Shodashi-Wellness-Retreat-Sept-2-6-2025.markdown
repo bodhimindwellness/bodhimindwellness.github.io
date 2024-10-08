@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shodashi Wellness Retreat Sept 2-6 2025"
-date:   2024-10-03 10:36:11 +0400
+date:   2024-09-21 10:36:11 +0400
 categories: jekyll update
 ---
 
@@ -14,6 +14,8 @@ Tuesday September 2 to Saturday 6, 2025
 English with French explanation.
 
 [Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
 <i>''Mauritius was made first, and then heaven; and heaven was copied after Mauritius.” - Mark Twain </i>
@@ -34,6 +36,8 @@ Take a look at our Dharani (July 27-31) and Green Tara retreats (August 1-3, 202
 
 [Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
 
+[See all retreats](https://bodhimindwellness.com/)
+
 ## DESCRIPTION
 Join us for this awesome luxury retreat on the south coast of Mauritius island with all that is necessary to make your stay unforgettable. Take a [virtual tour](https://my.threesixty.tours/app/v/308jvj/0y6a4i) to get an idea of the fantastic location that awaits you. 
 
@@ -41,6 +45,7 @@ Yoga has a lot to offer towards opening the gates to consciousness. It clears an
 
 
 In this retreat, you will enjoy DAILY outdoor classes of:
+
 + 2 hours of hatha yoga. Yoga postures help to detoxify the physical body, bring strength, flexibility and stability.
 + Alignment and adjustment of postures so as to become more aware of wrongly-performed yoga postures to avoid harming the body through microtrauma and bring confidence and stability in self-practice.
 + Yoga nidra for a deep restorative whole body relaxation comparable to the dreamless state during sleep, though here consciousness will be maintained and 
@@ -89,6 +94,8 @@ In ayurveda, one of the common ways of toxin production in the body is through b
 The location is exceptionally beautiful and many participants like to celebrate their trip. We do not have any intention of dousing your happiness. It will be the fuel for your enthusiastic effort in the retreat. No restrictions will be applied on the type of food allowed during the retreat. Instead, we will practise mindful eating where you will become more conscious of the effects of the food on your being. Consciousness will be our leitmotif all throughout so that it intensifies during your stay and remains thereafter.
 
 [Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
 Manjusha Coonjan

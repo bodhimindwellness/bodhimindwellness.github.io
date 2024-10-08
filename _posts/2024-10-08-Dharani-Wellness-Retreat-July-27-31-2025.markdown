@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dharani Wellness Retreat July 27-31 2025"
-date:   2024-10-05 10:00:00 +0400
+date:   2024-10-08 10:00:00 +0400
 categories: Retreat
 ---
 
@@ -14,6 +14,8 @@ English with French explanation
 
 [Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
 
+[See all retreats](https://bodhimindwellness.com/)
+
 ## SUMMARY
 <i>''Mauritius was made first, and then heaven; and heaven was copied after Mauritius.” - Mark Twain </i>
 
@@ -25,13 +27,15 @@ An opportunity to bring and consolidate harmony, stability and peace within. A l
 
 Individual life coaching will ensure that each finds their way and unfolds the journey towards their chosen aspirations and purpose. As a group, we will grow together through the community space of sharing and expanding our understanding. 
 
-We have tried to bring the most out of the retreat in a jist for 5 days where you can unwind, absorb the new and leave re(un)structured for a better life, made possible with the help of Eastern philosophy, mysticism and spirituality. 2jiJcZLoGfw
+We have tried to bring the most out of the retreat in a jist for 5 days where you can unwind, absorb the new and leave re(un)structured for a better life, made possible with the help of Eastern philosophy, mysticism and spirituality. 
 
 Join our Green Tara retreat happening right after this one at the same location. See]
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uMjRD5_oQAQ?autoplay=1&mute=1&loop=1&playlist=uMjRD5_oQAQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 ## DESCRIPTION
 
@@ -40,7 +44,7 @@ Join us for this exceptional retreat on the west coast of Mauritius island where
 Yoga has a lot to offer towards opening the gates to consciousness. It clears and nourishes the physical, mental, emotional and spiritual dimensions which are the pillars for a wholesome human being. 
 
 In this retreat, you will enjoy DAILY outdoor classes of:
-2 hours of hatha yoga. Yoga postures help to detoxify the physical body, bring strength, flexibility and stability.
++ 2 hours of hatha yoga. Yoga postures help to detoxify the physical body, bring strength, flexibility and stability.
 + Alignment and adjustment of postures so as to become more aware of wrongly-performed yoga postures to avoid harming the body through microtrauma and bring confidence and stability in self-practice.
 + Yoga nidra for a deep restorative whole body relaxation comparable to the dreamless state during sleep, though here consciousness will be maintained and 
 + Pranayama or breathing techniques to bring balance in our subtle energy channels or nadis to clear and bring balance to the flow of bioelectric energy responsible for maintaining good health.
@@ -63,6 +67,8 @@ Living these 5 days to the fullest will surely bring the desired change in the d
 Newbie, Beginner, Intermediate 
 
 [Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 ## PROGRAM
 Here is a sample of a day in the retreat.
@@ -89,6 +95,8 @@ Lunch and dinner will be prepared by our local caterer, Kevin who provides us wi
 
 [Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
 
+[See all retreats](https://bodhimindwellness.com/)
+
 ## TEACHERS
 Manjusha Coonjan
 
@@ -114,5 +122,7 @@ Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
 
 [Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 Do not hesitate to [contact us](https://tyltonline.github.io/contact/) for further info.

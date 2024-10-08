@@ -1,18 +1,20 @@
 ---
 layout: post
 title:  "Green Tara Retreat August 1-3 2025"
-date:   2024-10-04 10:36:11 +0400
+date:   2024-10-01 10:36:11 +0400
 categories: jekyll update
 ---
 
-## DATES:
+### DATES:
 Friday August 1 to Sunday 3 2025
 (3 days - 2 nights)
 
-## LANGUAGE:
+### LANGUAGE:
 French with English Translation.
 
 [Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
 Maybe you are checking this retreat out of curiosity not knowing how it may change your outlook on life or mindset. 
@@ -25,7 +27,7 @@ We will have an introduction to Buddhist philosophy, learn a simple Green Tara p
 
 Join our wellness (yoga, meditation, life coaching) retreat happening prior to this one at the same location. See]
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?si=HZXjSjQf14M4sJoT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?autoplay=1&mute=1&loop=1&playlist=dMxOKI2hEdk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
 
@@ -80,6 +82,7 @@ Closing and Feedback with breakfast
 
 [Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
 
+[See all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
 Brahmani Laetitia
@@ -102,6 +105,8 @@ Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
 
 [Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 Do not hesitate to [contact us](https://tyltonline.github.io/contact/) for further info.
 
