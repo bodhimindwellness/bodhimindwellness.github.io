@@ -53,7 +53,7 @@ In this retreat, you will enjoy DAILY outdoor classes of:
 + Meditation where we deepen our presence in silence using different active techniques such as visualisation or chanting as well as passive ones such as being the witness and getting grounded in observation and contemplation or mindfulness. Meditation becomes easier and glimpses of silence happen more often when practised in a group.
 + Classes on yoga philosophy to better understand and consolidate all the learning process in the right direction that is towards the centre of our being through integration.
 + Group gathering and sharing or me-times - whatever suits you 
-+ One-on-one life coaching sessions for personal assimilation
++ 3 One-on-one life coaching sessions for personal assimilation: one before the reteat, one during and one after.
 
 Living these 5 days to the fullest will surely bring the desired change in the dimension of your life you choose.
 

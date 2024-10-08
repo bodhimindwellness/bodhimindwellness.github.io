@@ -29,7 +29,7 @@ Individual life coaching will ensure that each finds their way and unfolds the j
 
 We have tried to bring the most out of the retreat in a jist for 5 days where you can unwind, absorb the new and leave re(un)structured for a better life, made possible with the help of Eastern philosophy, mysticism and spirituality. 
 
-Join our Green Tara retreat happening right after this one at the same location. See]
+Join our Green Tara retreat happening right after this one at the same location. [See other retreats](https://bodhimindwellness.com/)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
@@ -51,7 +51,7 @@ In this retreat, you will enjoy DAILY outdoor classes of:
 + Meditation where we deepen our presence in silence using different active techniques such as visualisation or chanting as well as passive ones such as being the witness and getting grounded in observation and contemplation or mindfulness. Meditation becomes easier and glimpses of silence happen more often when practised in a group.
 + Classes on yoga philosophy to better understand and consolidate all the learning process in the right direction that is towards the centre of our being through integration.
 + Group gathering and sharing or me-times - whatever suits you 
-+ One-on-one life coaching sessions for personal assimilation
++ 3 One-on-one life coaching sessions for personal assimilation: one before the reteat, one during and one after.
 
 Living these 5 days to the fullest will surely bring the desired change in the dimension of your life you choose.
 
