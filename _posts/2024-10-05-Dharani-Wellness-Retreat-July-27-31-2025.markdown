@@ -25,11 +25,11 @@ An opportunity to bring and consolidate harmony, stability and peace within. A l
 
 Individual life coaching will ensure that each finds their way and unfolds the journey towards their chosen aspirations and purpose. As a group, we will grow together through the community space of sharing and expanding our understanding. 
 
-We have tried to bring the most out of the retreat in a jist for 5 days where you can unwind, absorb the new and leave re(un)structured for a better life, made possible with the help of Eastern philosophy, mysticism and spirituality. 
+We have tried to bring the most out of the retreat in a jist for 5 days where you can unwind, absorb the new and leave re(un)structured for a better life, made possible with the help of Eastern philosophy, mysticism and spirituality. 2jiJcZLoGfw
 
 Join our Green Tara retreat happening right after this one at the same location. See]
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?si=kIcw4O0qvXGHRs8g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uMjRD5_oQAQ?autoplay=1&mute=1&loop=1&playlist=uMjRD5_oQAQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
 
