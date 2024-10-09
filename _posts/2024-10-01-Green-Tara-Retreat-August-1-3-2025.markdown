@@ -85,9 +85,7 @@ Closing and Feedback with breakfast
 [See all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
-Brahmani Laetitia
-
-Manjusha Coonjan
+| <a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>|<a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani") Brahmani Laetitia </a>| 
 
 ## LOCATION
 Villa Claire de Lune, Flic en Flac, Mauritius Island

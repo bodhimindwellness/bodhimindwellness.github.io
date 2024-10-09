@@ -3,7 +3,7 @@ layout: page
 title: Contact
 permalink: /contact/
 ---
-1. Retreat Registration Form
+1. Wellness Retreats Registration Form
 2. Contact Form
 3. Universal Chanting Form (Free) - Scroll down /Faire défiler vers le bas.
 
