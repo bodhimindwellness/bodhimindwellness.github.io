@@ -99,7 +99,7 @@ Lunch and dinner will be prepared by our local caterer, Kevin who provides us wi
 
 ## TEACHERS
 
-|<a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") </a> Dr Manjusha Coonjan | ![Simla Lubah](/assets/images/simlacircle.png "Simla Lubah") Simla Lubah | ![Laetita Brahmani](/assets/images/LBcircle.png  "Laetita Brahmani" ) Brahmani Laetitia |
+|<a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>| <a href="https://bodhimindwellness.com/Team/"> ![Simla Lubah](/assets/images/simlacircle.jpg "Simla Lubah") Simla Lubah </a>| <a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani") Brahmani Laetitia </a> |
 
 ## LOCATION
 Villa Claire de Lune, Flic en Flac, Mauritius Island
