@@ -100,7 +100,7 @@ Lunch and dinner will be prepared by our local caterer, Kevin who provides us wi
 ## TEACHERS
 Manjusha Coonjan
 
-Simla Devi Lubah
+![Simla Lubah](/assets/images/simlacircle.png "Simla Lubah")
 
 Brahmani Laëtitia
 
