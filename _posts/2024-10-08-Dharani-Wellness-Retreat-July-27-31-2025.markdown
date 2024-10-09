@@ -51,7 +51,7 @@ In this retreat, you will enjoy DAILY outdoor classes of:
 + Meditation where we deepen our presence in silence using different active techniques such as visualisation or chanting as well as passive ones such as being the witness and getting grounded in observation and contemplation or mindfulness. Meditation becomes easier and glimpses of silence happen more often when practised in a group.
 + Classes on yoga philosophy to better understand and consolidate all the learning process in the right direction that is towards the centre of our being through integration.
 + Group gathering and sharing or me-times - whatever suits you 
-+ 3 One-on-one life coaching sessions for personal assimilation: one before the reteat, one during and one after.
++ 3 individual life coaching sessions for personal assimilation: one before the reteat, one during and one after.
 
 Living these 5 days to the fullest will surely bring the desired change in the dimension of your life you choose.
 
@@ -100,7 +100,7 @@ Lunch and dinner will be prepared by our local caterer, Kevin who provides us wi
 ## TEACHERS
 Manjusha Coonjan
 
-Simla Devi Lubah
+![Simla Lubah](/assets/images/simlacircle.png "Simla Lubah")
 
 Brahmani Laëtitia
 
@@ -111,12 +111,12 @@ Villa Claire de Lune, Flic en Flac, Mauritius Island
 The following fees include the total cost of the retreat with food and accommodation, and varies according to the type of occupancy.
 
 ### Shared accommodation
-In shared room with twin beds - 998 euros each.
+Shared room with twin beds - 998 euros per participant
 
-Shared accommodation for couples - 1800 euros
+Shared accommodation for couples - 1800 euros for both
 
 ### Single room
-Single room with a double bed - 1200 euros
+Single room with a double bed - 1200 euros per participant
 
 Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
