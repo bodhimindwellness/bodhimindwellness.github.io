@@ -53,7 +53,7 @@ In this retreat, you will enjoy DAILY outdoor classes of:
 + Meditation where we deepen our presence in silence using different active techniques such as visualisation or chanting as well as passive ones such as being the witness and getting grounded in observation and contemplation or mindfulness. Meditation becomes easier and glimpses of silence happen more often when practised in a group.
 + Classes on yoga philosophy to better understand and consolidate all the learning process in the right direction that is towards the centre of our being through integration.
 + Group gathering and sharing or me-times - whatever suits you 
-+ 3 One-on-one life coaching sessions for personal assimilation: one before the reteat, one during and one after.
++ 3 individual life coaching sessions for personal assimilation: one before the reteat, one during and one after.
 
 Living these 5 days to the fullest will surely bring the desired change in the dimension of your life you choose.
 
@@ -105,11 +105,43 @@ Another teacher may assist in some classes.
 ## LOCATION
 [Shanti Maurice 5-star Resort & Spa](https://shantimaurice.com/) , St Felix, Mauritius Island
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xlpzMX60blg?autoplay=1&mute=1&loop=1&playlist=xlpzMX60blg" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+
 ## ACCOMMODATION & FEES:
 
 Take a [virtual tour](https://my.threesixty.tours/app/v/308jvj/0y6a4i) to make a better choice.
 
 The following fees include the TOTAL cost of the retreat with food and accommodation and varies according to the type of occupancy.
+
+### Shared accommodation
+Shared room with German bedding: 
+1988 euros per participant Junior Suite Oceanview (ground & first floor). According to availability. Come with a buddy to share the room and get a 5% discount EACH!
+
+Shared room with twin beds: 
+2150 euros per participant Junior Suite Oceanfront (first floor). According to availability. Come with a buddy to share the room and get a 5% discount EACH!
+
+
+Shared room for couples: 
+3976 euros per couple in Junior Suite Oceanview (ground & first floor). Other categories of room available on request.
+
+
+### Single room
+Single occupancy room with double bed
+
+Junior Suite Oceanview (ground & first floor): 2860 euros
+
+Junior Suite Lagoonview (ground & first floor): 3000 euros
+
+Junior Suite Oceanfront (first floor): 3200 euros
+
+Junior Suite Beachfront (ground floor): 3600 euros
+
+[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+
+[See all retreats](https://bodhimindwellness.com/)
+
+Do not hesitate to [contact us](https://tyltonline.github.io/contact/) for further info.
 
 
 [jekyll-docs]: https://jekyllrb.com/docs/home
