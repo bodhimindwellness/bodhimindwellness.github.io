@@ -75,7 +75,7 @@ Register for a course by clicking on the following button.
 </a>
 
 ## V. Retreats
-More information to come in due course
+[See all retreats](https://bodhimindwellness.com/)
 
 ![Flower of life](/assets/images/flower-life-colorful-illustration-white-background-1.png "Flower of life")
 
@@ -156,7 +156,7 @@ More information to come in due course
 </a>
 
 ## <i>V. Retraites</i>
-<i>Plus d’information à venir en temps et lieu</i>
+<i>[Voir les retraites](https://bodhimindwellness.com/)</i>
 
 
 
