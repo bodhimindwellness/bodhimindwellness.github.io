@@ -98,9 +98,9 @@ The location is exceptionally beautiful and many participants like to celebrate 
 [See all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
-Manjusha Coonjan
 
-Another teacher may assist in some classes.
+|<a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>| <a href="https://bodhimindwellness.com/Team/"> ![Simla Lubah](/assets/images/simlacircle.jpg "Simla Lubah") Simla Lubah </a>| Or another of our teachers may assist in some classes. |
+
 
 ## LOCATION
 [Shanti Maurice 5-star Resort & Spa](https://shantimaurice.com/) , St Felix, Mauritius Island
