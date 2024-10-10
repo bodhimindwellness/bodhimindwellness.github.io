@@ -12,7 +12,7 @@ Sunday July 27 to Thursday 31, 2025
 ### LANGUAGE:
 English with French explanation
 
-[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -34,7 +34,7 @@ Join our Green Tara retreat happening right after this one at the same location.
 <iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 
-[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -67,7 +67,7 @@ Living these 5 days to the fullest will surely bring the desired change in the d
 ### Skill level:
 Newbie, Beginner, Intermediate 
 
-[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -94,7 +94,7 @@ The breakfast will be kept simple and homely with fresh fruits, juices, bread, c
 
 Lunch and dinner will be prepared by our local caterer, Kevin who provides us with a wide variety of delicious Mauritian dishes. 
 
-[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -119,7 +119,7 @@ Single room with a double bed - 1200 euros per participant
 Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
 
-[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
