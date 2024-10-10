@@ -12,7 +12,7 @@ Friday August 1 to Sunday 3 2025
 ### LANGUAGE:
 French with English Translation.
 
-[Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -29,7 +29,7 @@ Join our Dharani Wellness Retreat (yoga, meditation, life coaching) happening pr
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?autoplay=1&mute=1&loop=1&playlist=dMxOKI2hEdk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-[Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
 ## DESCRIPTION
 Our retreat will include the following in a flexible way to the group’s needs.
@@ -80,7 +80,7 @@ Our retreat will include the following in a flexible way to the group’s needs.
 Closing and Feedback with breakfast
 + 10:30 Check out
 
-[Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -103,7 +103,7 @@ Single room with a double bed: 575 euros
 Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
 
-[Register for Green Tara Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 

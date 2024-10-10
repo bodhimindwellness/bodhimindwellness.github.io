@@ -13,7 +13,7 @@ Tuesday September 2 to Saturday 6, 2025
 ### LANGUAGE: 
 English with French explanation.
 
-[Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -34,7 +34,7 @@ Take a look at our Dharani (July 27-31) and Green Tara retreats (August 1-3, 202
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/duVLv0SXgDk?autoplay=1&mute=1&loop=1&playlist=duVLv0SXgDk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-[Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -56,6 +56,8 @@ In this retreat, you will enjoy DAILY outdoor classes of:
 + 3 individual life coaching sessions for personal assimilation: one before the reteat, one during and one after.
 
 Living these 5 days to the fullest will surely bring the desired change in the dimension of your life you choose.
+
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 Take a [virtual tour](https://my.threesixty.tours/app/v/308jvj/0y6a4i)
 
@@ -84,7 +86,7 @@ Newbie, Beginner, Intermediate
 + 21:00	Sleep
 
 
-[Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 ## FOOD
 The price of the retreat includes the cost of staying full board. Meals provided: breakfast, lunch and dinner.
@@ -93,7 +95,7 @@ Free choice a la carte breakfast, lunch and diner.
 In ayurveda, one of the common ways of toxin production in the body is through bad digestion. Digestion depends not only on the type of food but predominantly, on our emotional-mental state. If we are happy and like what we eat, digestion happens efficiently and health is maintained. 
 The location is exceptionally beautiful and many participants like to celebrate their trip. We do not have any intention of dousing your happiness. It will be the fuel for your enthusiastic effort in the retreat. No restrictions will be applied on the type of food allowed during the retreat. Instead, we will practise mindful eating where you will become more conscious of the effects of the food on your being. Consciousness will be our leitmotif all throughout so that it intensifies during your stay and remains thereafter.
 
-[Register for Shodashi Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
@@ -107,6 +109,7 @@ The location is exceptionally beautiful and many participants like to celebrate 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/xlpzMX60blg?autoplay=1&mute=1&loop=1&playlist=xlpzMX60blg" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 ## ACCOMMODATION & FEES:
 
@@ -137,7 +140,7 @@ Junior Suite Oceanfront (first floor): 3200 euros
 
 Junior Suite Beachfront (ground floor): 3600 euros
 
-[Register for Dharani Wellness Retreat](https://forms.gle/Zxz61xDD1u53KtS6A)
+[Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 [See all retreats](https://bodhimindwellness.com/)
 
