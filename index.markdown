@@ -18,7 +18,12 @@ layout: default
       </li>
     {% endfor %}
   </ul>
+ <iframe width="560" height="315" src="https://www.youtube.com/embed/uMjRD5_oQAQ?autoplay=1&mute=1&loop=1&playlist=uMjRD5_oQAQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+ 
+[Register for Retreats](https://forms.gle/Zxz61xDD1u53KtS6A)
 
   <p class="rss-subscribe">subscribe <a href="{{ "/feed.xml" | prepend: site.baseurl }}">via RSS</a></p>
+
+ 
 
 </div>
