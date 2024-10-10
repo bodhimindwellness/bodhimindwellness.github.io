@@ -5,6 +5,11 @@ permalink: /Services/
 ---
 <i> Faire défiler pour la version française </i>
 
+<a href="https://bodhimindwellness.com"> ![Retreats 2025](/assets/images/retreatssmallgif.gif) </a> 
+
+<a href="https://bodhimindwellness.com/"> ![View all retreats](/assets/images/retreatsbutton.jpg "View all retreats")
+</a>
+
 ## I. Free
  Let's generate peace and compassion for ourselves and all sentient beings!
  Monthly online chanting sessions. Subscribe by clicking on the following button

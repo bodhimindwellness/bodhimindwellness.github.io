@@ -1,14 +1,12 @@
 ---
 layout: default
 ---
-
+![Retreats 2025](/assets/images/retreatssmallgif.gif)
 <div class="home">
   
   <h1 class="page-heading">Upcoming Retreats</h1>
 
-  <iframe width="560" height="315" src="https://www.youtube.com/embed/uMjRD5_oQAQ?autoplay=1&mute=1&loop=1&playlist=uMjRD5_oQAQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>  
-
-  <ul class="post-list">
+   <ul class="post-list">
     {% for post in site.posts %}
       <li>
         <!--<span class="post-meta">published on  {{ post.date | date: "%b %-d, %Y" }}-->
