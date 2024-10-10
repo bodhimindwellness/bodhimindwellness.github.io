@@ -51,6 +51,7 @@ Our retreat will include the following in a flexible way to the group’s needs.
 ### Skill level: open to all
 
 ## PROGRAM
+Here is an example of our program
 
 ### DAY 1
 + 10:00             Check in

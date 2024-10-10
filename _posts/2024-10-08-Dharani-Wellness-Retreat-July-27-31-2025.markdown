@@ -74,10 +74,10 @@ Newbie, Beginner, Intermediate
 ## PROGRAM
 Here is a sample of a day in the retreat.
 
-+ 07:00   Chakra Balancing & postures 
-+ 09:00   Beach/me time and breakfast 
-+ 11:00	Philosophy 
-+ 12:30   Lunch, beach/me time
++ 07:00 Chakra Balancing & postures 
++ 09:00 Beach/me time and breakfast 
++ 11:00 Philosophy 
++ 12:30 Lunch, beach/me time
 + 14:30	Yoga Nidra
 + 15:15	Beach/me time
 + 16:15	Alignment 
@@ -123,4 +123,4 @@ Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 
 [See all retreats](https://bodhimindwellness.com/)
 
-Do not hesitate to [contact us](https://tyltonline.github.io/contact/) for further info.
+Do not hesitate to [contact us](https://bodhimindwellness.com/contact/) for further info.
