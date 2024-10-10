@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-<a href="https://bodhimindwellness.com"> ![Retreats 2025](/assets/images/retreatssmallgif.gif.gif) </a> 
+<a href="https://bodhimindwellness.com"> ![Retreats 2025](/assets/images/retreatssmallgif.gif) </a> 
 
 
 |<a href="https://bodhimindwellness.com"> ![Retreats icon](/assets/images/retreatsicon.jpg "Retreats icon") </a> | Join our restorative pause with yoga, meditation, individual coaching, deep relaxation for a lasting transformation. [More info](https://bodhimindwellness.com)|
