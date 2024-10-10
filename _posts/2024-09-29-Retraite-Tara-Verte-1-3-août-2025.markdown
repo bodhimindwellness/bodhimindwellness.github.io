@@ -1,9 +1,10 @@
 ---
 layout: post
 title:  "<i> Retraite Tara Verte 1-3 août 2025 </i>"
-date:   2024-10-08 10:00:00 +0400
+date:   2024-09-29 10:00:00 +0400
 categories: Retreat
 ---
+
 ### DATES:
 Du vendredi 1er au dimanche 3 août 2025 (3 jours - 2 nuits)
 ### LANGUE:
@@ -11,7 +12,7 @@ En français avec traduction anglaise.
 
 [Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
 
-[Voir toutes les retraites](https://bodhimindwellness.com/)
+[Retraite bien-être Dharani juil 27-31 2025](https://bodhimindwellness.com/)
 
 ## RÉSUMÉ
 Peut-être que vous essayez cette retraite par curiosité, sans savoir comment elle pourrait changer votre vision de la vie ou votre état d’esprit.
@@ -20,11 +21,13 @@ Cette immersion de 3 jours avec la Mère Divine sous la forme de Tara Verte appo
 Nous aurons une introduction à la philosophie bouddhiste, allons apprendre une pratique simple de Tara Verte, profiter d'activités créatives, nous connecter aux 5 éléments de la Nature et de l'Existence.
 Rejoignez notre retraite bien-être Dharani (yoga, méditation, coaching de vie) qui se déroule avant celle-ci au même endroit. 
 
+[Retraite bien-être Dharani juil 27-31 2025](https://bodhimindwellness.com/)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?autoplay=1&mute=1&loop=1&playlist=dMxOKI2hEdk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
 [Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
 
 [Voir toutes les retraites](https://bodhimindwellness.com/)
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?autoplay=1&mute=1&loop=1&playlist=dMxOKI2hEdk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ## DESCRIPTION
 Notre retraite comprendra les éléments suivants de manière flexible en fonction des besoins du groupe.
@@ -81,6 +84,7 @@ JOUR 3
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
 ## ENSEIGNANTS
+
 |<a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani")Brahmani Laetitia </a> | <a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan" ) Dr Manjusha Coonjan</a> | 
 
 ## EMPLACEMENT

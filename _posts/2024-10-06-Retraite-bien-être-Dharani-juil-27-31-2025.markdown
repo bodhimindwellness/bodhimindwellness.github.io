@@ -22,7 +22,9 @@ Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indie
 Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
 Le coaching de vie individuel permettra à chacun de trouver sa voie et de déployer le chemin vers ses aspirations et son objectif. En tant que groupe, nous grandirons ensemble grâce à l'espace communautaire de partage et d'élargissement de notre compréhension.
 Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
-Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. 
+Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
 
@@ -94,7 +96,8 @@ Inscrivez-vous à la retraite bien-être Dharani
 Voir toutes les retraites
 
 ## ENSEIGNANTS
-|<a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>| <a href="https://bodhimindwellness.com/Team/"> ![Simla Lubah](/assets/images/simlacircle.jpg "Simla Lubah") Simla Lubah </a>| <a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani") Brahmani Laetitia </a> |
+
+| <a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>| <a href="https://bodhimindwellness.com/Team/"> ![Simla Lubah](/assets/images/simlacircle.jpg "Simla Lubah") Simla Lubah </a>| <a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani") Brahmani Laetitia </a> |
 
 [Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
 

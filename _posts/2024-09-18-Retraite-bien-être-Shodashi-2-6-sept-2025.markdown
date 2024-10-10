@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "<i> Retraite bien-être Shodashi 2-6 sept 2025 </i>"
-date:   2024-10-08 10:00:00 +0400
+date:   2024-09-18 10:00:00 +0400
 categories: Retreat
 ---
 
@@ -91,6 +91,7 @@ En ayurveda, l'une des façons les plus courantes de produire des toxines dans l
 
 
 ## ENSEIGNANTS
+
 |<a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>| <a href="https://bodhimindwellness.com/Team/"> ![Simla Lubah](/assets/images/simlacircle.jpg "Simla Lubah") Simla Lubah </a>| Ou un autre de nos professeurs peut aider dans certaines classes. |
 
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
