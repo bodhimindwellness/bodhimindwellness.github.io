@@ -18,9 +18,11 @@ En anglais avec explication en français
 
 ## RÉSUMÉ
 Rejoignez-nous pour une pause réparatrice et transformatrice.
+
 Yoga. Méditation. Coaching.
-Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien.
-Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+
+Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien. Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+
 Le coaching de vie individuel permettra à chacun de trouver sa voie et de déployer le chemin vers ses aspirations et son objectif. En tant que groupe, nous grandirons ensemble grâce à l'espace communautaire de partage et d'élargissement de notre compréhension.
 Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
 Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. 
@@ -87,6 +89,7 @@ Voici un échantillon d'une journée en retraite.
 ## NOURRITURE
 Le prix du séjour comprend le coût de l'hébergement en pension complète. Repas fournis : petit-déjeuner, déjeuner et dîner.
 Petit déjeuner, déjeuner et dîner à la carte au choix. 
+
 En ayurveda, l'une des façons les plus courantes de produire des toxines dans le corps est la mauvaise digestion. La digestion dépend non seulement du type d'aliments mais surtout de notre état émotionnel et mental. Si nous sommes heureux et aimons ce que nous mangeons, la digestion se fait efficacement et la santé est préservée. Le lieu est exceptionnellement beau et de nombreux participants aiment célébrer leur voyage. Nous n'avons pas l'intention de gâcher votre bonheur. Il sera le carburant de votre enthousiasme pendant la retraite. Aucune restriction ne sera appliquée sur le type d'aliments autorisés pendant la retraite. Au lieu de cela, nous pratiquons une alimentation consciente où vous deviendrez plus conscient des effets de la nourriture sur votre être. La conscience sera notre leitmotiv tout au long de votre séjour afin qu'elle s'intensifie pendant votre séjour et dure par la suite.
 
 
