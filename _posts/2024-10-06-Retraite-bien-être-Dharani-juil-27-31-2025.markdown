@@ -109,13 +109,14 @@ Villa Claire de Lune, Flic en Flac, Île Maurice
 ## HÉBERGEMENT & TARIFS :
 Les frais suivants incluent le coût total de la retraite avec nourriture et hébergement, et varient selon le type d'occupation.
 ### Hébergement partagé
-Chambre partagée avec lits jumeaux - 998 euros par participant
+Chambre partagée avec lits jumeaux - 999 euros par participant
 
-### Hébergement partagé pour couples - 1800 euros pour les deux
-Chambre simple
-Chambre individuelle avec un lit double - 1200 euros par participant
+Hébergement partagé pour couples - 1799 euros pour les deux
 
-Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur les hébergements partagés si vous venez en couple. CHACUN d'entre vous bénéficie d'une réduction de 5% sur le montant total des frais.
+### Chambre simple
+Chambre individuelle avec un lit double - 1199 euros par participant
+
+Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur tout type d'hébergements.
 
 [Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
 
