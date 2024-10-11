@@ -96,10 +96,10 @@ Villa Claire de Lune, Flic en Flac, Mauritius Island
 The following fees include the total cost of the retreat with food and accommodation and varies according to the type of occupancy.
 
 ### Shared accommodation
-In shared room with twin beds or German bedding (first come first serve): 450 euros each participant
+In shared room with twin beds or German bedding (first come first serve): 459 euros each participant
 
 ### Single room
-Single room with a double bed: 575 euros
+Single room with a double bed: 579 euros
 
 Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
