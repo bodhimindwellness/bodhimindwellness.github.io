@@ -50,6 +50,10 @@ Our retreat will include the following in a flexible way to the group’s needs.
 
 ### Skill level: open to all
 
+[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
+
+[See all retreats](https://bodhimindwellness.com/)
+
 ## PROGRAM
 Here is an example of our program
 
