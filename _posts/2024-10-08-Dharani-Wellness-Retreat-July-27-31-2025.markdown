@@ -117,7 +117,7 @@ Shared accommodation for couples - 1799 euros for both
 Single room with a double bed - 1199 euros per participant
 
 Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
-5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
+5% discounts on any type of accommodation.
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
