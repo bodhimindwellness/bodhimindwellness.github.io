@@ -119,26 +119,26 @@ The following fees include the TOTAL cost of the retreat with food and accommoda
 
 ### Shared accommodation
 Shared room with German bedding: 
-1988 euros per participant Junior Suite Oceanview (ground & first floor). According to availability. Come with a buddy to share the room and get a 5% discount EACH!
+1989 euros per participant Junior Suite Oceanview (ground & first floor). According to availability. Come with a buddy to share the room and get a 5% discount EACH!
 
 Shared room with twin beds: 
-2150 euros per participant Junior Suite Oceanfront (first floor). According to availability. Come with a buddy to share the room and get a 5% discount EACH!
+2149 euros per participant Junior Suite Oceanfront (first floor). According to availability. Come with a buddy to share the room and get a 5% discount EACH!
 
 
 Shared room for couples: 
-3976 euros per couple in Junior Suite Oceanview (ground & first floor). Other categories of room available on request.
+3979 euros per couple in Junior Suite Oceanview (ground & first floor). Other categories of room available on request.
 
 
 ### Single room
 Single occupancy room with double bed
 
-Junior Suite Oceanview (ground & first floor): 2860 euros
+Junior Suite Oceanview (ground & first floor): 2859 euros
 
-Junior Suite Lagoonview (ground & first floor): 3000 euros
+Junior Suite Lagoonview (ground & first floor): 2999 euros
 
-Junior Suite Oceanfront (first floor): 3200 euros
+Junior Suite Oceanfront (first floor): 3199 euros
 
-Junior Suite Beachfront (ground floor): 3600 euros
+Junior Suite Beachfront (ground floor): 3599 euros
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 

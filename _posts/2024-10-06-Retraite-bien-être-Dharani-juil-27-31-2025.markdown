@@ -17,9 +17,11 @@ En anglais avec explication en français
 
 ## RÉSUMÉ
 Rejoignez-nous pour une pause réparatrice et transformatrice.
+
 Yoga. Méditation. Coaching.
-Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien.
-Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+
+Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien. Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+
 Le coaching de vie individuel permettra à chacun de trouver sa voie et de déployer le chemin vers ses aspirations et son objectif. En tant que groupe, nous grandirons ensemble grâce à l'espace communautaire de partage et d'élargissement de notre compréhension.
 Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
 Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/)
