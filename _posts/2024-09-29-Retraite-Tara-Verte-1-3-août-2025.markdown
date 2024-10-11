@@ -16,8 +16,11 @@ En français avec traduction anglaise.
 
 ## RÉSUMÉ
 Peut-être que vous essayez cette retraite par curiosité, sans savoir comment elle pourrait changer votre vision de la vie ou votre état d’esprit.
+
 Parfois, nous sommes à la recherche d'une petite pause avec des personnes qui nous ressemblent, d'un moment de partage ludique et de rires sans le sérieux habituel d'une vie contrôlée par l'horloge. La vie devient soudain légère et pleine de bonheur. Avoir un soutien spirituel comme Tara Verte nous aide à apporter cette légèreté.
+
 Cette immersion de 3 jours avec la Mère Divine sous la forme de Tara Verte apportera certainement une connexion plus profonde avec la Terre Mère et votre part féminine de compassion, de paix, de fluidité, d'amour, de générosité. Nous pratiquons une sadhana très simple mais puissante. La pratique de Tara Verte est ouverte à tous et ne se limite pas à une certaine lignée. La conscience de groupe est essentielle, elle agit comme un catalyseur pour que nos vibrations résonnent en union comme le son des différentes cordes d'une guitare crée un ensemble complexe - la musique.
+
 Nous aurons une introduction à la philosophie bouddhiste, allons apprendre une pratique simple de Tara Verte, profiter d'activités créatives, nous connecter aux 5 éléments de la Nature et de l'Existence.
 Rejoignez notre retraite bien-être Dharani (yoga, méditation, coaching de vie) qui se déroule avant celle-ci au même endroit. 
 
@@ -93,9 +96,9 @@ Villa Claire de Lune, Flic en Flac, Île Maurice
 ## HÉBERGEMENT & TARIFS :
 Les frais suivants incluent le coût TOTAL de la retraite avec nourriture et hébergement et varient selon le type d'occupation.
 ### Hébergement partagé
-En chambre partagée avec lits jumeaux ou literie allemande (premier arrivé, premier servi) : 450 euros par participant
+En chambre partagée avec lits jumeaux ou literie allemande (premier arrivé, premier servi) : 459 euros par participant
 ### Chambre simple
-Chambre simple avec un lit double : 575 euros
+Chambre simple avec un lit double : 579 euros
 
 Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur les hébergements partagés si vous venez en couple. CHACUN d'entre vous bénéficie d'une réduction de 5% sur le montant total des frais.
 

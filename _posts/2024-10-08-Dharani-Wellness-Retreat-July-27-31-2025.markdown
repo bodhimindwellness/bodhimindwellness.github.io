@@ -109,15 +109,15 @@ Villa Claire de Lune, Flic en Flac, Mauritius Island
 The following fees include the total cost of the retreat with food and accommodation, and varies according to the type of occupancy.
 
 ### Shared accommodation
-Shared room with twin beds - 998 euros per participant
+Shared room with twin beds - 999 euros per participant
 
-Shared accommodation for couples - 1800 euros for both
+Shared accommodation for couples - 1799 euros for both
 
 ### Single room
-Single room with a double bed - 1200 euros per participant
+Single room with a double bed - 1199 euros per participant
 
 Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
-5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
+5% discounts on any type of accommodation.
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 

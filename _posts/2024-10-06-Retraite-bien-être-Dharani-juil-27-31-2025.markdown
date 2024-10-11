@@ -17,9 +17,11 @@ En anglais avec explication en français
 
 ## RÉSUMÉ
 Rejoignez-nous pour une pause réparatrice et transformatrice.
+
 Yoga. Méditation. Coaching.
-Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien.
-Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+
+Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien. Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+
 Le coaching de vie individuel permettra à chacun de trouver sa voie et de déployer le chemin vers ses aspirations et son objectif. En tant que groupe, nous grandirons ensemble grâce à l'espace communautaire de partage et d'élargissement de notre compréhension.
 Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
 Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/)
@@ -109,13 +111,14 @@ Villa Claire de Lune, Flic en Flac, Île Maurice
 ## HÉBERGEMENT & TARIFS :
 Les frais suivants incluent le coût total de la retraite avec nourriture et hébergement, et varient selon le type d'occupation.
 ### Hébergement partagé
-Chambre partagée avec lits jumeaux - 998 euros par participant
+Chambre partagée avec lits jumeaux - 999 euros par participant
 
-### Hébergement partagé pour couples - 1800 euros pour les deux
-Chambre simple
-Chambre individuelle avec un lit double - 1200 euros par participant
+Hébergement partagé pour couples - 1799 euros pour les deux
 
-Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur les hébergements partagés si vous venez en couple. CHACUN d'entre vous bénéficie d'une réduction de 5% sur le montant total des frais.
+### Chambre simple
+Chambre individuelle avec un lit double - 1199 euros par participant
+
+Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur tout type d'hébergements.
 
 [Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
 
