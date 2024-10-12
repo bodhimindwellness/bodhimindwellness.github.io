@@ -115,6 +115,7 @@ Faites une [visite virtuelle]((https://my.threesixty.tours/app/v/308jvj/0y6a4i))
 Les frais suivants incluent le coût TOTAL de la retraite avec nourriture et hébergement et varient selon le type d'occupation.
 
 ### Hébergement partagé
+
 Chambre partagée avec literie allemande : 1989 euros par participant Junior Suite Oceanview (rez-de-chaussée et premier étage). Selon disponibilité. Venez avec un ami pour partager la chambre et obtenez 5% de réduction CHACUN !
 
 Chambre partagée avec lits jumeaux : 2149 euros par participant Suite Junior face à la mer (rez-de-chaussée). Selon disponibilité. Venez avec un ami pour partager la chambre et obtenez 5% de réduction CHACUN !
@@ -122,10 +123,15 @@ Chambre partagée avec lits jumeaux : 2149 euros par participant Suite Junior fa
 Chambre partagée pour couple : 3979 euros par couple en Junior Suite Oceanview (rez-de-chaussée et premier étage). Autres catégories de chambres disponibles sur demande.
 
 ### Chambre simple
+
 Chambre simple avec lit double
+
 Suite Junior Vue Océan (rez-de-chaussée et premier étage) : 2859 euros
+
 Suite Junior Vue Lagon (rez-de-chaussée et premier étage) : 2999 euros
+
 Suite Junior Front de Mer (1er étage) : 3199 euros
+
 Suite Junior Front de Mer (rez-de-chaussée) : 3599 euros
 
 Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur les hébergements partagés si vous venez en couple. CHACUN d'entre vous bénéficie d'une réduction de 5% sur le montant total des frais.
