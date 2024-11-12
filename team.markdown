@@ -12,9 +12,7 @@ Each of us has received a calling to help others based on our individual experie
 
 The core values that we endeavour to apply are unconditional positive regard, authenticity, empathy ensuring privacy and ethics, applying nonviolence and compassion, without discrimination; treating everyone equally irrespective of race, colour, religion, sexual orientation,or based on any kind of categorisation or preferences. 
 
-Our main team members are Dr Manjusha Coonjan, Simla Lubah, Laetitia Brahmani, Danitza Tuyau.
-
-![Who we are](/assets/images/introeng.png "Who we are")
+Our main team members are Dr Manjusha Coonjan (medical doctor, yoga therapist and life coach), Simla Lubah (Yoga Instructor Wellness Advocate), Brahmani Laetitia (Master 2 Psychoanalysis, Schizoanalysis,Poetess), Danitza Tuyau (personal development coach). See below
 
 
 ![Dr Manjusha Coonjan](/assets/images/manjushaeng.jpg "Dr Manjusha Coonjan")
