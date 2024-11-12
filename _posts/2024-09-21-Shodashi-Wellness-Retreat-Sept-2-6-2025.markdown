@@ -107,6 +107,21 @@ The location is exceptionally beautiful and many participants like to celebrate 
 ## LOCATION
 [Shanti Maurice 5-star Resort & Spa](https://shantimaurice.com/) , St Felix, Mauritius Island
 
+### St Felix
+St Felix beach, situated on the south coast of Mauritius, is among the island's most peaceful locations, offering a serene atmosphere with just a few hotels, snack bars, and sports fields lining its golden sands. Tucked away between Bel Ombre and Souillac, this hidden gem provides a tranquil space from the usual tourist hustle. Here, you can unwind and enjoy the serene surroundings, making it the perfect getaway for those seeking peace and relaxation.
+
+Stretching over 1.5 kilometres, St Félix is renowned for its two unique and picturesque beaches that resemble scenes straight out of a postcard. Each beach offers its own charm, inviting visitors to explore the beauty of this stunning coastal paradise. With breathtaking turquoise to deep blue waters and vibrant coastal vegetation, you'll feel as though you've stepped into a secluded island paradise. This enchanting landscape invites you to relax and immerse yourself in the natural beauty that surrounds you. 
+
+### Shanti Maurice 5 star Resort & spa.
+Welcome to Shanti Maurice, a five-star luxury resort and spa on the stunning south coast of Mauritius! Experience an unforgettable stay surrounded by breathtaking views and exceptional amenities. Take a virtual tour, on https://my.threesixty.tours/app/v/308jvj/0y6a4i, to discover the fantastic location and all the incredible features that await you. Your dream getaway starts here!
+
+Each of the generously sized suites and luxurious villas at Shanti Maurice boasts uninterrupted views across the calm waters of the Indian Ocean. Surrounded by fragrant private gardens, spacious terraces, and offering their own refreshing private pools, the contemporary-styled villas offer everything you need for a luxurious Mauritius getaway. 
+The suites and villas are spread over 36 acres of tropical gardens offering guests a sweet sense of privacy and freedom. Panoramic windows, private terraces and pools and elegant furnishings come as standard, as do stunning ocean views and direct beach access. 
+Rooms feature simple, timeless décor, and are tastefully furnished with large and comfortable beds, panoramic floor-to-ceiling windows, and free in-room entertainment systems. Many suites and villas lead straight onto our private white sandy beach. The Shanti Maurice team members are fluent in English & French, along with dedicated personnel knowledgeable in German, Russian, Arabic, Hindi, Kreol, Thai & Africaans.
+
+Shanti Spa, a 75,000 sq. feet sanctuary of pure relaxation and self-discovery offers a range of therapies and treatments designed to cleanse the body, invigorate the mind, and soothe the soul. Enjoy re-energizing workouts, invigorating massages, and wellness sessions that equip you with tools to maintain your health after your visit. Experience a journey that revitalises your spirit and enhances your well-being.
+
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/xlpzMX60blg?autoplay=1&mute=1&loop=1&playlist=xlpzMX60blg" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)

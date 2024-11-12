@@ -106,6 +106,18 @@ En ayurveda, l'une des façons les plus courantes de produire des toxines dans l
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/xlpzMX60blg?autoplay=1&mute=1&loop=1&playlist=xlpzMX60blg" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+### Plage St Félix 
+La plage de St Félix, située sur la côte sud de l’île Maurice, est parmi les endroits les plus paisibles de l’île, offrant une atmosphère sereine avec seulement quelques hôtels, des snack-bars et des terrains de sport bordant ses sables dorés. Niché entre Bel Ombre et Souillac, ce joyau caché offre un espace tranquille loin de l’agitation touristique habituelle. Ici, vous pouvez vous détendre et profiter de l’environnement serein, ce qui en fait l' escapade parfaite pour ceux qui recherchent la paix et la détente.
+Longue de 1,5 kilomètre, St Félix est réputée pour ses deux plages uniques et pittoresques qui ressemblent à des scènes d’une carte postale. Chaque plage offre son propre charme, invitant les visiteurs à explorer la beauté de ce paradis côtier. Avec des eaux turquoise à couper le souffle et un bleu profond, vous aurez l’impression d’avoir pénétré dans un paradis insulaire isolé. Ce paysage enchanteur vous invite à vous détendre et à vous immerger dans la beauté naturelle qui vous entoure. 
+
+### Shanti Maurice Resort et Spa 5 étoiles 
+Bienvenue à Shanti Maurice, un complexe de luxe cinq étoiles et spa sur la magnifique côte sud de l’île Maurice! Vivez un séjour inoubliable entouré de vues à couper le souffle et d’équipements exceptionnels. Faites une visite virtuelle sur https://my.threesixty.tours/app/v/308jvj/0y6a4i pour découvrir le lieu fantastique et toutes les fonctionnalités incroyables qui vous attendent. Votre escapade de rêve commence ici!
+Chaque suite de taille généreuse et villa luxueuse au Shanti Maurice offre une vue imprenable sur les eaux calmes de l’océan Indien. Entourées de jardins privés parfumés, de terrasses spacieuses et offrant leurs propres piscines privées rafraîchissantes, les villas au style contemporain offrent tout ce dont vous avez besoin pour une escapade luxueuse à l’île Maurice. Les suites et villas sont réparties sur 36 acres de jardins tropicaux offrant aux clients un doux sentiment d’intimité et de liberté. Fenêtres panoramiques, terrasses et piscines privées et mobilier élégant sont de série, tout comme la vue imprenable sur l’océan et l’accès direct à la plage. 
+Les chambres disposent d’une décoration simple et intemporelle, et sont meublées avec goût avec de grands lits confortables, des fenêtres panoramiques du sol au plafond, et des systèmes de divertissement gratuits dans la chambre. De nombreuses suites et villas donnent directement sur notre plage privée de sable blanc. Les membres de l’équipe de Shanti Maurice parlent couramment anglais et français, ainsi que du personnel dévoué qui connaît bien l’allemand, le russe, l’arabe, l’hindi, le créole, le thaïlandais et l’africain.
+
+Le Shanti Spa, un sanctuaire de 75 000 pieds carrés de pure relaxation et de découverte de soi, offre une gamme de thérapies et de traitements conçus pour nettoyer le corps, revigorer l’esprit et apaiser l’âme. Profitez d’entraînements revigorants, de massages revigorants et de séances de bien-être qui vous donnent les outils nécessaires pour maintenir votre santé après votre visite. Vivez un voyage qui revitalise votre esprit et améliore votre bien-être.
+
+
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
 
 [Voir toutes les retraites](https://bodhimindwellness.com/)
