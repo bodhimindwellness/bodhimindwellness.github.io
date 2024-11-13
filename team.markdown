@@ -12,42 +12,36 @@ Each of us has received a calling to help others based on our individual experie
 
 The core values that we endeavour to apply are unconditional positive regard, authenticity, empathy ensuring privacy and ethics, applying nonviolence and compassion, without discrimination; treating everyone equally irrespective of race, colour, religion, sexual orientation,or based on any kind of categorisation or preferences. 
 
-Our main team members are Dr Manjusha Coonjan, Simla Lubah, Laetitia Brahmani, Danitza Tuyau.
-
-![Who we are](/assets/images/introeng.png "Who we are")
+Our main team members are Dr Manjusha Coonjan (medical doctor, yoga therapist and life coach), Simla Lubah (Yoga Instructor Wellness Advocate), Brahmani Laetitia (Master 2 Psychoanalysis, Schizoanalysis,Poetess), Danitza Tuyau (personal development coach). See below
 
 
 ![Dr Manjusha Coonjan](/assets/images/manjushaeng.jpg "Dr Manjusha Coonjan")
-[Follow Manjusha on Facebook](https://www.facebook.com/profile.php?id=100033228883018)
-<a href="https://bodhimindwellness.com/contact/"> ![Click here](/assets/images/manjushaabannereng.png "Click here") </a>
+
 
 ![Simla Lubah](/assets/images/simlaeng.jpg "Simla Lubah")
 
 
 ![Laetita Brahmani](/assets/images/laetitiaeng.jpg "Laetita Brahmani")
-[Follow Laetitia](https://zedisyonevaoseanindyin.wordpress.com/home)
-<a href="https://bodhimindwellness.com/contact/"> ![Click here](/assets/images/laetitiabannereng.png "Click here")</a>
 
 
 ![Danitza Tuyau](/assets/images/danitzaeng.png "Danitza Tuyau")
-[Follow Danitza sur Instagram](https://www.instagram.com/helpinghand_mu?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw%3D%3D)
-<a href="https://bodhimindwellness.com/contact/"> ![Click here](/assets/images/danitzabannereng.png "Click here") </a>
 
-<i> Français </i>
 
-![Qui nous sommes](/assets/images/quinoussommes.png "Qui nous sommes")
+## <i>Qui nous sommes </i>
+
+<i>Dans le monde virtuel d’aujourd’hui, il est facile de perdre de vue l’importance des connexions profondes dans le monde réel. De nombreuses personnes sont dévorées par les écrans ou submergées par des situations difficiles et des événements traumatiques passés, ce qui entraîne des troubles émotionnels non résolus, entre autres. Nos séances de coaching, de thérapie et de retraite abordables offrent le soutien nécessaire pour aider les personnes à surmonter ces obstacles et à mener une vie saine et épanouissante, tant mentalement que émotionnellement et physiquement. Nous sommes fiers de nos clients satisfaits, dont certains ont même parrainé des séances de thérapie pour les personnes dans le besoin.</i>
+
+<i>Chacun de nous a reçu un appel pour aider les autres en fonction de nos expériences individuelles. Nous comprenons la douleur de traverser des épreuves seul ou avec des gens qui ne sont pas présents ou authentiques. Nous savons ce que c’est d’avoir un esprit en ébullition, de lutter psychologiquement et de désirer une pause où l’on peut enfin respirer librement. </i>
+
+<i>Les valeurs fondamentales que nous nous efforçons d’appliquer sont le respect positif inconditionnel, l’authenticité, l’empathie garantissant la vie privée et l’éthique, l’application de la non-violence et de la compassion, sans discrimination; traiter tout le monde de manière égale indépendamment de la race, la couleur, la religion, l’orientation sexuelle,ou sur la base de toute catégorie ou préférence.</i>
+
+<i>Nos principaux membres de l’équipe sont le Dr Manjusha Coonjan (médecin, thérapeute en yoga et coach de vie), Simla Lubah (instructeur de yoga, défenseur du bien être), Brahmani Laetitia (master 2 psychanalyste, schizoanalyse,poétesse), Danitza Tuyau (coach de développement personnel). Voir ci-dessous</i>
 
 
 ![Dr Manjusha Coonjan](/assets/images/manjushafr.jpg "Dr Manjusha Coonjan")
-[Suivre Manjusha sur Facebook](https://www.facebook.com/profile.php?id=100033228883018)
-<a href="https://bodhimindwellness.com/contact/"> ![Click here](/assets/images/ManjushaBanner.png "Click here") </a>
 
 ![Simla Lubah](/assets/images/simlafr.jpg "Simla Lubah")
 
 ![Laetita Brahmani](/assets/images/laetitiafr.jpg "Laetita Brahmani")
-[Suivre Laetitia](https://zedisyonevaoseanindyin.wordpress.com/home)
-<a href="https://bodhimindwellness.com/contact/"> ![Click here](/assets/images/LaetitiaBanner.png "Click here")</a>
 
 ![Danitza Tuyau](/assets/images/Danitza.png "Danitza Tuyau")
-[Suivre Danitza sur Instagram](https://www.instagram.com/helpinghand_mu?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw%3D%3D)
-<a href="https://bodhimindwellness.com/contact/"> ![Click here](/assets/images/DanitzaBanner.png "Click here") </a>
