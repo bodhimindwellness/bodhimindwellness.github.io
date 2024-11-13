@@ -4,6 +4,7 @@ title:  "Green Tara Retreat August 1-3 2025"
 date:   2024-10-01 10:36:11 +0400
 categories: jekyll update
 ---
+3 Day Wellbeing Retreat
 
 ### DATES:
 Friday August 1 to Sunday 3 2025

@@ -4,11 +4,11 @@ title:  "Shodashi Wellness Retreat Sept 2-6 2025"
 date:   2024-09-21 10:36:11 +0400
 categories: jekyll update
 ---
+5 Day Yoga & Wellness Luxury Retreat
 
 ### DATES: 
 Tuesday September 2 to Saturday 6, 2025
-
-(5 nights - 4 days)
+(5 days - 4 nights)
 
 ### LANGUAGE: 
 English with French explanation.
