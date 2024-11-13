@@ -5,6 +5,15 @@ permalink: /Team/
 ---
 <i> Faire défiler pour la version française </i>
 
+## Who we are
+In today's virtual world, it's easy to lose sight of the importance of deep connections in the real world. Many individuals become consumed by screens or overwhelmed by challenging life situations and past traumatic events, leading to unresolved emotional turmoil among other issues. Our affordable coaching, therapy sessions and retreats provide the necessary support to help individuals navigate these obstacles and achieve a healthy and fulfilling life, both mento-emotionally and physically. We take pride in our satisfied clients, some of whom have even sponsored therapy sessions for those in financial need.
+
+Each of us has received a calling to help others based on our individual experiences. We understand the pain of going through hardships alone or with people who are not present or authentic. We know what it's like to have a mind in turmoil, to struggle psychologically and to long for a pause where we can at last breathe freely. 
+
+The core values that we endeavour to apply are unconditional positive regard, authenticity, empathy ensuring privacy and ethics, applying nonviolence and compassion, without discrimination; treating everyone equally irrespective of race, colour, religion, sexual orientation,or based on any kind of categorisation or preferences. 
+
+Our main team members are Dr Manjusha Coonjan, Simla Lubah, Laetitia Brahmani, Danitza Tuyau.
+
 ![Who we are](/assets/images/introeng.png "Who we are")
 
 
