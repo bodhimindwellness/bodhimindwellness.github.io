@@ -4,6 +4,7 @@ title:  "<i> Retraite bien-être Dharani juil 27-31 2025 </i>"
 date:   2024-10-08 10:00:00 +0400
 categories: Retreat
 ---
+Retraite de yoga et bien-être de 5 jours
 
 ### DATES:
 Du dimanche 27 juillet au jeudi 31 juillet 2025 (5 jours - 4 nuits)

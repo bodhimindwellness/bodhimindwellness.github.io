@@ -4,6 +4,7 @@ title:  "<i> Retraite Tara Verte 1-3 août 2025 </i>"
 date:   2024-09-29 10:00:00 +0400
 categories: Retreat
 ---
+Retraite de mieux-être de 3 jours
 
 ### DATES:
 Du vendredi 1er au dimanche 3 août 2025 (3 jours - 2 nuits)

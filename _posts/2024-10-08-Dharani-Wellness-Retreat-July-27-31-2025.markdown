@@ -4,6 +4,7 @@ title:  "Dharani Wellness Retreat July 27-31 2025"
 date:   2024-10-08 10:00:00 +0400
 categories: Retreat
 ---
+5 Day Yoga & Wellness Retreat
 
 ### DATES: 
 Sunday July 27 to Thursday 31, 2025 

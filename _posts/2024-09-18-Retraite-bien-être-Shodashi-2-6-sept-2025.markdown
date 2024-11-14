@@ -4,6 +4,7 @@ title:  "<i> Retraite bien-être Shodashi 2-6 sept 2025 </i>"
 date:   2024-09-18 10:00:00 +0400
 categories: Retreat
 ---
+Retraite de luxe de 5 jours de yoga et de bien-être
 
 ### DATES:
 Du mardi 2 au samedi 6 septembre 2025
