@@ -32,7 +32,7 @@ We have tried to bring the most out of the retreat in a jist for 5 days where yo
 
 Join our Green Tara retreat happening right after this one at the same location. [See other retreats](https://bodhimindwellness.com/)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
@@ -106,7 +106,7 @@ Lunch and dinner will be prepared by our local caterer, Kevin who provides us wi
 ## LOCATION
 Villa Claire de Lune, Flic en Flac, Mauritius Island (See the video below)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ### Flic en Flac
 Welcome to Flic en Flac, a stunning beach village in Mauritius renowned for its beautiful, mile-long stretch of warm beaches. The lagoon is teeming with vibrant reefs and captivating marine life, making it a perfect spot for aquatic adventures. For a quick swim during the retreat beachtime, grab your mask and snorkel to swim alongside butterfly fish, small groupers, and an array of colourful species. Wear water shoes for added comfort, as they protect your feet from rubbing against corals which break off naturally from the coral reef preserving the lagoon.

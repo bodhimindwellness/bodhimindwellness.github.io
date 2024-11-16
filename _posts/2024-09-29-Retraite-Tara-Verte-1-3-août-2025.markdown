@@ -27,7 +27,7 @@ Rejoignez notre retraite bien-être Dharani (yoga, méditation, coaching de vie)
 
 [Retraite bien-être Dharani juil 27-31 2025](https://bodhimindwellness.com/)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?autoplay=1&mute=1&loop=1&playlist=dMxOKI2hEdk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
 
