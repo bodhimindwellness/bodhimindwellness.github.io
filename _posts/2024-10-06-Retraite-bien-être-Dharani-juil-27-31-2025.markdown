@@ -27,7 +27,7 @@ Le coaching de vie individuel permettra à chacun de trouver sa voie et de dépl
 Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
 Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
 
@@ -109,7 +109,7 @@ Voir toutes les retraites
 ## EMPLACEMENT
 Villa Claire de Lune, Flic en Flac, Île Maurice (voir la vidéo ci-dessous)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ### Flic en Flac
 Bienvenue à Flic en Flac, un magnifique village de plage à l’île Maurice réputé pour ses belles plages chaudes qui s’étendent sur plusieurs kilomètres. Le lagon regorge de récifs vibrants et d’une vie marine captivante, ce qui en fait un endroit idéal pour les aventures aquatiques. Pour une baignade rapide pendant la retraite, prenez votre masque et votre tuba pour nager aux côtés de poissons papillons, de petits mérous et d’un éventail d’espèces colorées. Portez des chaussures d’eau pour plus de confort, car elles protègent vos pieds contre les frottements contre les coraux qui se détachent naturellement du récif corallien préservant le lagon.

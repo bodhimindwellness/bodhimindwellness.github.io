@@ -124,6 +124,7 @@ Shanti Spa, a 75,000 sq. feet sanctuary of pure relaxation and self-discovery of
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/xlpzMX60blg?autoplay=1&mute=1&loop=1&playlist=xlpzMX60blg" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
 ## ACCOMMODATION & FEES:
