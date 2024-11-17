@@ -63,6 +63,9 @@ social_links:
  - { platform: x,              user_url: "https://x.com/jekyllrb" }
  - { platform: tiktok,         user_url: "https://x.com/jekyllrb" }
  - { platform: youtube,        user_url: "https://www.youtube.com/jekyll" }
+ - { platform: discord,        user_url: "https://www.youtube.com/jekyll" }
+ - { platform: spotify,        user_url: "https://www.youtube.com/jekyll" }
+ - { platform: whatsapp,        user_url: "https://www.youtube.com/jekyll" }
 #  - { platform: devto,          user_url: "https://dev.to/jekyll" }
 #  - { platform: dribbble,       user_url: "https://dribbble.com/jekyll" }
 #  - { platform: facebook,       user_url: "https://www.facebook.com/jekyll" }
