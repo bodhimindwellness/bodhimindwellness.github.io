@@ -27,9 +27,14 @@ Françoise, Mauritius -”Très bon professeur qui donne de bonnes directives au
 ### Yoga teacher training reviews
 Marie, Mauritius - “Very valuable teaching, thank you.”
 
-| <iframe width="200" height="112" src="https://www.youtube.com/embed/jcocHcgtiJI?si=1dmlJpSK_0Vv2uQU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> | <iframe width="200" height="112" src="https://www.youtube.com/embed/e5ZWKyPfEok?si=7HC6gUQ8pNDgak8v" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> | 
-<iframe width="200" height="112" src="https://www.youtube.com/embed/HeED-i4QPQs?si=vdiJ1TBL9LP71M9j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> 
+More reviews on YTTC:
+<iframe width="185" height="105" src="https://www.youtube.com/embed/jcocHcgtiJI?si=1dmlJpSK_0Vv2uQU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="185" height="105" src="https://www.youtube.com/embed/e5ZWKyPfEok?si=7HC6gUQ8pNDgak8v" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="185" height="105" src="https://www.youtube.com/embed/HeED-i4QPQs?si=vdiJ1TBL9LP71M9j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+[More on Youtube ](https://www.youtube.com/@Bodhimindwell)
+
+[See all retreats](https://bodhimindwellness.com/)
 
 ### Help us
 Our old website crashed and we lost a lot of our reviews.
