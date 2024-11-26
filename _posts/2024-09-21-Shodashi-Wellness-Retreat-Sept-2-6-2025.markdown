@@ -32,7 +32,7 @@ We have tried to bring the most out of the retreat in a jist for 5 days where yo
 
 Take a look at our Dharani (July 27-31) and Green Tara retreats (August 1-3, 2025) at Flic en Flac.
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/duVLv0SXgDk?autoplay=1&mute=1&loop=1&playlist=duVLv0SXgDk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0w5hGUKeN9k?autoplay=1&mute=1&loop=1&playlist=0w5hGUKeN9k" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 

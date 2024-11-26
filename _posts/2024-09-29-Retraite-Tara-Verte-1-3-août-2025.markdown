@@ -94,7 +94,7 @@ JOUR 3
 ## EMPLACEMENT
 Villa Claire de Lune, Flic en Flac, Île Maurice (voir la vidéo ci-dessous)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2jiJcZLoGfw?autoplay=1&mute=1&loop=1&playlist=2jiJcZLoGfw" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ### Flic en Flac
 Bienvenue à Flic en Flac, un magnifique village de plage à l’île Maurice réputé pour ses belles plages chaudes qui s’étendent sur plusieurs kilomètres. Le lagon regorge de récifs vibrants et d’une vie marine captivante, ce qui en fait un endroit idéal pour les aventures aquatiques. Pour une baignade rapide pendant la retraite, prenez votre masque et votre tuba pour nager aux côtés de poissons papillons, de petits mérous et d’un éventail d’espèces colorées. Portez des chaussures d’eau pour plus de confort, car elles protègent vos pieds contre les frottements contre les coraux qui se détachent naturellement du récif corallien préservant le lagon.

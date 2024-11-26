@@ -28,7 +28,7 @@ We will have an introduction to Buddhist philosophy, learn a simple Green Tara p
 
 Join our Dharani Wellness Retreat (yoga, meditation, life coaching) happening prior to this one at the same location. [See other retreats](https://bodhimindwellness.com/)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dMxOKI2hEdk?autoplay=1&mute=1&loop=1&playlist=dMxOKI2hEdk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 

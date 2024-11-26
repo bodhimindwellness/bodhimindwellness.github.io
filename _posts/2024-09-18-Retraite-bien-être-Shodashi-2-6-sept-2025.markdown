@@ -28,7 +28,7 @@ Le coaching de vie individuel permettra à chacun de trouver sa voie et de dépl
 Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
 Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/duVLv0SXgDk?autoplay=1&mute=1&loop=1&playlist=duVLv0SXgDk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0w5hGUKeN9k?autoplay=1&mute=1&loop=1&playlist=0w5hGUKeN9k" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
 
