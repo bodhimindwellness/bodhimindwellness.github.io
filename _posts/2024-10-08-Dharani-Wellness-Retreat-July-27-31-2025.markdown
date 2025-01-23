@@ -4,7 +4,7 @@ title:  "Dharani Wellness Retreat July 27-31 2025"
 date:   2024-10-08 10:00:00 +0400
 categories: Retreat
 ---
-5 Day Yoga & Wellness Retreat
+5 Day Yoga, Nature and Culture Wellness Retreat
 
 ### DATES: 
 Sunday July 27 to Thursday 31, 2025 
@@ -18,17 +18,12 @@ English with French explanation
 [See all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
-<i>''Mauritius was made first, and then heaven; and heaven was copied after Mauritius.” - Mark Twain </i>
+Easy yoga practice. Nature immersion. Cultural tour. All optional. Participate at your own pace, alone, with a buddy or your sweetheart for great intimate moments shared in wellness or why not as a group of friends or family for a healthy stay on a tropical paradise island.
 
-Yoga. Meditation. Coaching.
+Enjoy a full-on ecotourist retreat where your day starts with a comfortable yoga practice (or time alone) followed by long walks in awesome nature spots in our endemic tropical forest on Mauritius island. Come back to relax on the white sandy beach and have a dip in the safe turquoise lagoon protected by coral reefs and nurtured by the Indian Ocean, finishing the day with a breathtaking sunset. On the third day, we’ll dab in the Mauritian cultural roots with a visit to our capital city of Port Louis, led by our facilitators.
 
-Relax on the sunny beach and turquoise lagoon in the Indian Ocean.
+We have tried to bring the most out of the retreat in a gist of 5 days where you can take care of yourself, enjoy the sea, forest, rivers and waterfalls as well as have a tour in the capital city of Mauritius to get a short but sweet experience of the Mauritian culture. It is a good start for your stay in Mauritius where you can experience much more.
 
-An opportunity to bring and consolidate harmony, stability and peace within. A learning process with the application of hatha yoga, meditation and life coaching to understand and explore the ‘self’ according to the physical, emotional, mental and spiritual dimensions, with a view of rendering a permanent transformation within and opening the doors to serenity durably. Experience a restoring pause and go back to normal life with the peace of the tropical sky in your mind, glitter of the island sunshine in your eyes and mostly the warmth of the Mauritian hospitality in your hearts.
-
-Individual life coaching will ensure that each finds their way and unfolds the journey towards their chosen aspirations and purpose. As a group, we will grow together through the community space of sharing and expanding our understanding. 
-
-We have tried to bring the most out of the retreat in a jist for 5 days where you can unwind, absorb the new and leave re(un)structured for a better life, made possible with the help of Eastern philosophy, mysticism and spirituality. 
 
 Join our Green Tara retreat happening right after this one at the same location. [See other retreats](https://bodhimindwellness.com/)
 
@@ -41,29 +36,30 @@ Join our Green Tara retreat happening right after this one at the same location.
 
 ## DESCRIPTION
 
-Join us for this exceptional retreat on the west coast of Mauritius island where the weather is warm during winter in the southern hemisphere (June-September). We will stay in Flic en Flac at a comfortable family-owned villa less than 5 minutes walk to the beach where most of our classes will be held. We’ll enjoy authentic healthy sattvic vegetarian Mauritian food.
+Join us for this exceptional retreat on the west coast of Mauritius island where the weather is warm during winter in the southern hemisphere (June-September). We will stay at a comfortable family-owned villa less than 5 minutes walk to the beach where our morning and evening classes will be held. We’ll enjoy authentic healthy Mauritian food.
 
-Yoga has a lot to offer towards opening the gates to consciousness. It clears and nourishes the physical, mental, emotional and spiritual dimensions which are the pillars for a wholesome human being. 
+All activities are optional. So you can choose to skip any session or excursion.
 
-In this retreat, you will enjoy DAILY outdoor classes of:
-+ 2 hours of hatha yoga. Yoga postures help to detoxify the physical body, bring strength, flexibility and stability.
-+ Alignment and adjustment of postures so as to become more aware of wrongly-performed yoga postures to avoid harming the body through microtrauma and bring confidence and stability in self-practice.
-+ Yoga nidra for a deep restorative whole body relaxation comparable to the dreamless state during sleep, though here consciousness will be maintained and 
-+ Pranayama or breathing techniques to bring balance in our subtle energy channels or nadis to clear and bring balance to the flow of bioelectric energy responsible for maintaining good health.
-+ Meditation where we deepen our presence in silence using different active techniques such as visualisation or chanting as well as passive ones such as being the witness and getting grounded in observation and contemplation or mindfulness. Meditation becomes easier and glimpses of silence happen more often when practised in a group.
-+ Classes on yoga philosophy to better understand and consolidate all the learning process in the right direction that is towards the centre of our being through integration.
-+ Group gathering and sharing or me-times - whatever suits you 
-+ 3 individual life coaching sessions for personal assimilation: one before the reteat, one during and one after.
+In this retreat, you will enjoy 
++ Daily outdoor classes of hatha yoga consisting of postures, breathing techniques and meditation on the beach spread between morning and evening practice which is not compulsory. 
++ Excursion in the tropical endemic forest*
++ Excursion at a river and waterfall*
++ Cultural visit to Port Louis*
++ Beach and free time
++ Night gathering 
 
-Living these 5 days to the fullest will surely bring the desired change in the dimension of your life you choose.
+* Please note that all excursions are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule. 
+
 
 ## FEATURES
 ### Styles
 + Hatha yoga - postures, breathing, relaxation, contemplation
 + Laya yoga- chanting, chakra balancing
 + Raja yoga- mindfulness and meditation
-+ Karma yoga- in service to others (helping each other, assisting the teacher, giving back to the space)
-+ Individual coaching sessions
+
++ Nature immersion walks
++ Cultural tour to the capital city of Port Louis, discovering the multicultural Mauritian roots
+
 
 ### Skill level:
 Newbie, Beginner, Intermediate 
@@ -73,27 +69,26 @@ Newbie, Beginner, Intermediate
 [See all retreats](https://bodhimindwellness.com/)
 
 ## PROGRAM
-Here is a sample of a day in the retreat.
+All activities are optional. You can choose to be alone whenever you want to. All activities are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule but please allow flexibility.
+Here is a sample day 2
 
-+ 07:00 Chakra Balancing & postures 
-+ 09:00 Beach/me time and breakfast 
-+ 11:00 Philosophy 
-+ 12:30 Lunch, beach/me time
-+ 14:30	Yoga Nidra
-+ 15:15	Beach/me time
-+ 16:15	Alignment 
-+ 17:15	Pranayama & Sunset Meditation
-+ 18:00	Dinner
-+ 20:00	Night gathering-sharing, chanting or meditation
-+ 21:00	Sleep
+07:00	Yoga (optional) 
+08:30	Beach/free time and breakfast
+10:00	Excursion and lunch at outdoor location
+15:00	Beach/free time
+17:00	Sunset Meditation
+18:00	Dinner
+20:00	Night gathering
+21:00	Rest
 
 ## FOOD
-Authentic vegetarian and vegan Mauritian food. It is a vast array of Indo-mauritian, Chinese-mauritian, European-mauritian and local creole flavours.
+Authentic delicious Mauritian food. It is a vast array of Indo-mauritian, Chinese-mauritian, European-mauritian and local creole flavours.
 
 Meals provided: breakfast, lunch and dinner
-The breakfast will be kept simple and homely with fresh fruits, juices, bread, cereals, milk, yoghurt, etc. Do not hesitate to let us know of your preferences and we’ll do our best to make it available.
+The breakfast will be kept simple and homely with fresh fruits, juices, bread, cereals, milk, yogurt, etc. Lunch will be packed as we will be out in nature (days 2 & 3) or in Port Louis on day 4.
 
-Lunch and dinner will be prepared by our local caterer, Kevin who provides us with a wide variety of delicious Mauritian dishes. 
+Do not hesitate to let us know of your preferences and we’ll do our best to make it available.
+ 
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
