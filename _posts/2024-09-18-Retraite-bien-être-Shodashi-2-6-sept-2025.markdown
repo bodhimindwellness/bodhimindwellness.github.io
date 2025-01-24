@@ -4,7 +4,7 @@ title:  "<i> Retraite bien-être Shodashi 2-6 sept 2025 </i>"
 date:   2024-09-18 10:00:00 +0400
 categories: Retreat
 ---
-Retraite de luxe de 5 jours de yoga et de bien-être
+Retraite de bien-être yoga, nature et culture de 5 jours
 
 ### DATES:
 Du mardi 2 au samedi 6 septembre 2025
@@ -18,15 +18,15 @@ En anglais avec explication en français
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
 ## RÉSUMÉ
-Rejoignez-nous pour une pause réparatrice et transformatrice.
+Pratique facile du yoga. Immersion dans la nature. Visite culturelle. Tout en option. Participez à votre rythme, seul, avec un copain ou votre chéri pour de grands moments intimes partagés en bien-être ou pourquoi pas en groupe d’amis ou en famille pour un séjour sain sur une île tropicale paradisiaque.
 
-Yoga. Méditation. Coaching.
+Profitez d’une retraite écotouristique complète où votre journée commence par une pratique confortable de yoga (ou du temps seul) suivie de longues promenades dans des endroits naturels impressionnants dans notre forêt tropicale endémique sur l’île Maurice. Revenez pour vous détendre sur la plage de sable blanc et prendre un bain dans le lagon turquoise protégé par les récifs coralliens et nourri par l’océan Indien, terminant la journée avec un coucher de soleil à couper le souffle. Le troisième jour, nous allons nous plonger dans les racines culturelles mauriciennes avec une visite de notre capitale Port Louis, dirigée par nos animateurs.
+Nous avons essayé de tirer le meilleur parti du séjour en 5 jours où vous pouvez prendre soin de vous, profiter de la mer, de la forêt, des rivières et cascades ainsi que d’avoir une visite dans la capitale de l’île Maurice pour obtenir une expérience courte mais douce de la culture mauricienne. C’est un bon début pour votre séjour à l’île Maurice où vous pourrez en découvrir beaucoup plus.
 
-Détendez-vous sur la plage ensoleillée et le lagon turquoise de l'océan Indien. Une opportunité d'apporter et de consolider l'harmonie, la stabilité et la paix intérieure. Un processus d'apprentissage avec l'application du hatha yoga, de la méditation et du coaching de vie pour comprendre et explorer le « soi » selon les dimensions physiques, émotionnelles, mentales et spirituelles, en vue d'opérer une transformation permanente intérieure et d'ouvrir durablement les portes de la sérénité. Vivez une pause réparatrice et revenez à la vie normale avec la paix du ciel tropical dans votre esprit, l'éclat du soleil de l'île dans vos yeux et surtout la chaleur de l'hospitalité mauricienne dans vos cœurs.
+Jetez un œil à nos retraites [Dharani (27-31 juillet)](https://bodhimindwellness.com/retreat/2024/10/08/Retraite-bien-%C3%AAtre-Dharani-juil-27-31-2025.html) et [Green Tara (1er-3 août 2025)](https://bodhimindwellness.com/retreat/2024/09/29/Retraite-Tara-Verte-1-3-ao%C3%BBt-2025.html) à Flic en Flac.
+[Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
+[Voir toutes les retraites](https://bodhimindwellness.com/)
 
-Le coaching de vie individuel permettra à chacun de trouver sa voie et de déployer le chemin vers ses aspirations et son objectif. En tant que groupe, nous grandirons ensemble grâce à l'espace communautaire de partage et d'élargissement de notre compréhension.
-Nous avons essayé de tirer le meilleur parti de la retraite en un seul morceau pendant 5 jours où vous pourrez vous détendre, absorber la nouveauté et repartir re(dé)structuré pour une vie meilleure, rendue possible grâce à l'aide de la philosophie orientale, du mysticisme et de la spiritualité.
-Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0w5hGUKeN9k?autoplay=1&mute=1&loop=1&playlist=0w5hGUKeN9k" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
@@ -35,21 +35,20 @@ Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au m
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
 ## DESCRIPTION
-Rejoignez-nous pour cette superbe retraite de luxe sur la côte sud de l'île Maurice avec tout ce qu'il faut pour rendre votre séjour inoubliable. Faites une [visite virtuelle](https://my.threesixty.tours/app/v/308jvj/0y6a4i) pour avoir une idée de l'endroit fantastique qui vous attend.
+Rejoignez-nous pour cette superbe retraite de luxe sur la côte sud de l'île Maurice avec tout ce qu'il faut pour rendre votre séjour inoubliable. Faites une visite virtuelle pour avoir une idée de l'endroit fantastique qui vous attend. 
 
-Le yoga a beaucoup à offrir pour ouvrir les portes de la conscience. Il purifie et nourrit les dimensions physiques, mentales, émotionnelles et spirituelles qui sont les piliers d'un être humain sain.
+Toutes les activités sont facultatives. Vous pouvez donc choisir de sauter une séance ou une excursion.
 
-Dans cette retraite, vous profiterez QUOTIDIENNEMENT de cours en plein air de :
-+ 2 heures de hatha yoga. Les postures de yoga aident à détoxifier le corps + physique, apportent force, souplesse et stabilité.
-+ Alignement et ajustement des postures afin de prendre davantage conscience des postures de yoga mal exécutées pour éviter de nuire au corps par des microtraumatismes et apporter confiance et stabilité dans la pratique personnelle.
-+ Yoga nidra pour une relaxation profonde et réparatrice de tout le corps comparable à l'état sans rêve pendant le sommeil, bien qu'ici la conscience sera maintenue.
-+ Pranayama ou techniques de respiration pour équilibrer nos canaux énergétiques subtils ou nadis pour nettoyer et équilibrer le flux d'énergie bioélectrique responsable du maintien d'une bonne santé.
-+ Méditation où nous approfondissons notre présence dans le silence en utilisant différentes techniques actives telles que la visualisation ou le chant, ainsi que des techniques passives telles que le fait d'être témoin et de s'ancrer dans l'observation et la contemplation ou la pleine conscience. La méditation devient plus facile et les moments de silence se produisent plus souvent lorsqu'elle est pratiquée en groupe.
-+ Cours sur la philosophie du yoga pour mieux comprendre et consolider tout le processus d'apprentissage dans la bonne direction qui est vers le centre de notre être par l'intégration.
-+ Réunion de groupe et partage ou moments pour soi - selon ce qui vous convient
-+ 3 séances individuelles de coaching de vie pour l'assimilation personnelle : une avant la reprise, une pendant et une après.
+Dans cette retraite, vous profiterez de: 
++ Cours quotidiens de hatha yoga en plein air comprenant des postures, des techniques de respiration et de méditation sur la plage réparties entre la pratique du matin et le soir qui n’est pas obligatoire. 
++ Excursion dans la forêt tropicale endémique*
++ Excursion à une rivière et cascade*
++ Visite culturelle à Port-Louis*
++ Plage et temps libre
++ Reunion de partage 
 
-Vivre ces 5 jours au maximum apportera sûrement le changement souhaité dans la dimension de votre vie que vous choisirez.
+* Veuillez noter que toutes les excursions sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé.
+
 
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
 
@@ -60,8 +59,8 @@ Vivre ces 5 jours au maximum apportera sûrement le changement souhaité dans la
 + Hatha yoga - postures, respiration, relaxation, contemplation
 + Laya yoga - chant, équilibrage des chakras
 + Raja yoga – pleine conscience et méditation
-+ Karma yoga - au service des autres (s'entraider, assister l'enseignant, redonner à l'espace)
-+ Séances de coaching individuel
++  Promenades en immersion dans la nature
++ Visite culturelle de la capitale Port Louis, à la découverte des racines multiculturelles mauriciennes
 
 ### Niveau de compétence :
 Débutant, Intermédiaire
@@ -70,18 +69,17 @@ Inscrivez-vous à la retraite bien-être Dharani
 Voir toutes les retraites
 
 ### PROGRAMME
-Voici un échantillon d'une journée en retraite.
-+ 07h00 Équilibrage des chakras et postures
-+ 09h00 Plage/temps pour moi et petit-déjeuner
-+ 11h00 Philosophie
-+ 12h30 Déjeuner, plage/temps pour moi
-+ 14h30 Yoga Nidra
-+ 15h15 Plage/temps pour moi
-+ 16:15 Alignement
-+ 17h15 Pranayama et méditation au coucher du soleil
-+ 18h00 Dîner
-+ 20h00 Rassemblement nocturne-partage, chant ou méditation
-+ 21h00 Dormir
+Toutes les activités sont facultatives. Vous pouvez choisir d’être seul quand vous le voulez. Toutes les activités sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé, mais veuillez faire preuve de souplesse.
+Voici un exemple de jour 2
+
+07:00	Yoga (facultatif) 
+08:30	Plage/temps libre et petit déjeuner
+10:00	Excursion et déjeuner à l’extérieur
+15:00	Plage/temps libre
+17:00	Méditation au coucher du soleil
+18:00	Dîner
+20:00	Réunion de partage
+21:00	Repos
 
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
 
