@@ -73,14 +73,14 @@ Newbie, Beginner, Intermediate
 All activities are optional. You can choose to be alone whenever you want to. All activities are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule but please allow flexibility.
 Here is a sample day 2
 
-07:00	Yoga (optional)
-08:30	Beach/free time and breakfast
-10:00	Excursion and lunch at outdoor location
-15:00	Beach/free time
-17:00	Sunset Meditation
-18:00	Dinner
-20:00	Night gathering
-21:00	Rest
+- 07:00	Yoga (optional)
+- 08:30	Beach/free time and breakfast
+- 10:00	Excursion and lunch at outdoor location
+- 15:00	Beach/free time
+- 17:00	Sunset Meditation
+- 18:00	Dinner
+- 20:00	Night gathering
+- 21:00	Rest
 
 ## FOOD
 Authentic delicious Mauritian food. It is a vast array of Indo-mauritian, Chinese-mauritian, European-mauritian and local creole flavours.
