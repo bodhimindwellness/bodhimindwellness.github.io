@@ -74,14 +74,14 @@ Voir toutes les retraites
 Toutes les activités sont facultatives. Vous pouvez choisir d’être seul quand vous le voulez. Toutes les activités sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé, mais veuillez faire preuve de souplesse.
 Voici un exemple de jour 2
 
-07:00	Yoga (facultatif) 
-08:30	Plage/temps libre et petit déjeuner
-10:00	Excursion et déjeuner à l’extérieur
-15:00	Plage/temps libre
-17:00	Méditation au coucher du soleil
-18:00	Dîner
-20:00	Réunion de partage
-21:00	Repos
+- 07:00	Yoga (facultatif) 
+- 08:30	Plage/temps libre et petit déjeuner
+- 10:00	Excursion et déjeuner à l’extérieur
+- 15:00	Plage/temps libre
+- 17:00	Méditation au coucher du soleil
+- 18:00	Dîner
+- 20:00	Réunion de partage
+- 21:00	Repos
 
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
 
