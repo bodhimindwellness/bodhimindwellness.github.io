@@ -47,7 +47,7 @@ Dans cette retraite, vous profiterez de:
 + Plage et temps libre
 + Reunion de partage 
 
-* Veuillez noter que toutes les excursions sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé.
+*Veuillez noter que toutes les excursions sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé.
 
 
 [Inscrivez-vous à la retraite bien-être Shodashi](https://bodhimindwellness.com/contact/)
@@ -59,7 +59,9 @@ Dans cette retraite, vous profiterez de:
 + Hatha yoga - postures, respiration, relaxation, contemplation
 + Laya yoga - chant, équilibrage des chakras
 + Raja yoga – pleine conscience et méditation
-+  Promenades en immersion dans la nature
+
++ Profiter de la plage
++ Promenades en immersion dans la nature
 + Visite culturelle de la capitale Port Louis, à la découverte des racines multiculturelles mauriciennes
 
 ### Niveau de compétence :
