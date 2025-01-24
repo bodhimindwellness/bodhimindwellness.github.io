@@ -48,7 +48,7 @@ In this retreat, you will enjoy
 + Beach and free time
 + Night gathering 
 
-* Please note that all excursions are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule. 
+*Please note that all excursions are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule. 
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
@@ -60,6 +60,7 @@ Take a [virtual tour](https://my.threesixty.tours/app/v/308jvj/0y6a4i)
 + Laya yoga- chanting, chakra balancing
 + Raja yoga- mindfulness and meditation
 
++ Beach exploration
 + Nature immersion walks
 + Cultural tour to the capital city of Port Louis, discovering the multicultural Mauritian roots
 
@@ -70,14 +71,14 @@ Newbie, Beginner, Intermediate
 All activities are optional. You can choose to be alone whenever you want to. All activities are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule but please allow flexibility.
 Here is a sample day 2
 
-07:00	Yoga (optional) 
-08:30	Beach/free time and breakfast
-10:00	Excursion and lunch at outdoor location
-15:00	Beach/free time
-17:00	Sunset Meditation
-18:00	Dinner
-20:00	Night gathering
-21:00	Rest
+ 07:00	Yoga (optional)
+ 08:30	Beach/free time and breakfast
+ 10:00	Excursion and lunch at outdoor location
+ 15:00	Beach/free time
+ 17:00	Sunset Meditation
+ 18:00	Dinner
+ 20:00	Night gathering
+ 21:00	Rest
 
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
