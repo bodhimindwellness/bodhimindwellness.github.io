@@ -22,7 +22,7 @@ Pratique facile du yoga. Immersion dans la nature. Visite culturelle. Tout en op
 Profitez d’une retraite écotouristique complète où votre journée commence par une pratique confortable de yoga (ou du temps seul) suivie de longues promenades dans des endroits naturels impressionnants dans notre forêt tropicale endémique sur l’île Maurice. Revenez pour vous détendre sur la plage de sable blanc et prendre un bain dans le lagon turquoise protégé par les récifs coralliens et nourri par l’océan Indien, terminant la journée avec un coucher de soleil à couper le souffle. Le troisième jour, nous allons nous plonger dans les racines culturelles mauriciennes avec une visite de notre capitale Port Louis, dirigée par nos animateurs.
 Nous avons essayé de tirer le meilleur parti du séjour en 5 jours où vous pouvez prendre soin de vous, profiter de la mer, de la forêt, des rivières et cascades ainsi que d’avoir une visite dans la capitale de l’île Maurice pour obtenir une expérience courte mais douce de la culture mauricienne. C’est un bon début pour votre séjour à l’île Maurice où vous pourrez en découvrir beaucoup plus.
 
-Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/)
+Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/retreat/2024/09/29/Retraite-Tara-Verte-1-3-ao%C3%BBt-2025.html)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
