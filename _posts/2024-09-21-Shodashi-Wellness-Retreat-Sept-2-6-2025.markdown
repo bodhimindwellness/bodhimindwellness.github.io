@@ -15,7 +15,7 @@ English with French explanation.
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
 Easy yoga practice. Nature immersion. Cultural tour. All optional. Participate at your own pace, alone, with a buddy or your sweetheart for great intimate moments shared in wellness or why not as a group of friends or family for a healthy stay on a tropical paradise island.
@@ -25,13 +25,13 @@ Enjoy a full-on ecotourist retreat where your day starts with a comfortable yoga
 We have tried to bring the most out of the retreat in a gist of 5 days where you can take care of yourself, enjoy the sea, forest, rivers and waterfalls as well as have a tour in the capital city of Mauritius to get a short but sweet experience of the Mauritian culture. It is a good start for your stay in Mauritius where you can experience much more.
  
 
-Take a look at our Dharani (July 27-31) and Green Tara retreats (August 1-3, 2025) at Flic en Flac.
+Take a look at our [Dharani](https://bodhimindwellness.com/retreat/2024/10/08/Dharani-Wellness-Retreat-July-27-31-2025.html) (July 27-31) and [Green Tara ](https://bodhimindwellness.com/jekyll/update/2024/10/01/Green-Tara-Retreat-August-1-3-2025.html) retreats (August 1-3, 2025) at Flic en Flac.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0w5hGUKeN9k?autoplay=1&mute=1&loop=1&playlist=0w5hGUKeN9k" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## DESCRIPTION
 Join us for this awesome luxury retreat on the south coast of Mauritius island with all that is necessary to make your stay unforgettable. Take a [virtual tour](https://my.threesixty.tours/app/v/308jvj/0y6a4i) to get an idea of the fantastic location that awaits you. 
@@ -71,14 +71,14 @@ Newbie, Beginner, Intermediate
 All activities are optional. You can choose to be alone whenever you want to. All activities are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule but please allow flexibility.
 Here is a sample day 2
 
- 07:00	Yoga (optional)
- 08:30	Beach/free time and breakfast
- 10:00	Excursion and lunch at outdoor location
- 15:00	Beach/free time
- 17:00	Sunset Meditation
- 18:00	Dinner
- 20:00	Night gathering
- 21:00	Rest
+- 07:00	Yoga (optional)
+- 08:30	Beach/free time and breakfast
+- 10:00	Excursion and lunch at outdoor location
+- 15:00	Beach/free time
+- 17:00	Sunset Meditation
+- 18:00	Dinner
+- 20:00	Night gathering
+- 21:00	Rest
 
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
@@ -92,7 +92,7 @@ The location is exceptionally beautiful and many participants like to celebrate 
 
 [Register for Shodashi Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
 

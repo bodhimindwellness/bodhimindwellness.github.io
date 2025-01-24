@@ -25,14 +25,14 @@ Enjoy a full-on ecotourist retreat where your day starts with a comfortable yoga
 We have tried to bring the most out of the retreat in a gist of 5 days where you can take care of yourself, enjoy the sea, forest, rivers and waterfalls as well as have a tour in the capital city of Mauritius to get a short but sweet experience of the Mauritian culture. It is a good start for your stay in Mauritius where you can experience much more.
 
 
-Join our Green Tara retreat happening right after this one at the same location. [See other retreats](https://bodhimindwellness.com/)
+Join our [Green Tara retreat](https://bodhimindwellness.com/jekyll/update/2024/10/01/Green-Tara-Retreat-August-1-3-2025.html) happening right after this one at the same location. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## DESCRIPTION
 
@@ -67,7 +67,7 @@ Newbie, Beginner, Intermediate
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## PROGRAM
 All activities are optional. You can choose to be alone whenever you want to. All activities are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule but please allow flexibility.
@@ -93,7 +93,7 @@ Do not hesitate to let us know of your preferences and we’ll do our best to ma
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
 
@@ -134,6 +134,6 @@ Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 Do not hesitate to [contact us](https://bodhimindwellness.com/contact/) for further info.

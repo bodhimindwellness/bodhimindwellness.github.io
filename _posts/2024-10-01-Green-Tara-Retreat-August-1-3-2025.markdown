@@ -15,7 +15,7 @@ French with English Translation.
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
 Maybe you are checking this retreat out of curiosity not knowing how it may change your outlook on life or mindset. 
@@ -26,7 +26,8 @@ This 3-day immersion with the Divine Mother in the form of Green Tara will defin
 
 We will have an introduction to Buddhist philosophy, learn a simple Green Tara practice, enjoy creative activities, connect with the 5 elements of Nature and Existence.
 
-Join our Dharani Wellness Retreat (yoga, meditation, life coaching) happening prior to this one at the same location. [See other retreats](https://bodhimindwellness.com/)
+Join our [Dharani Wellness Retrea](https://bodhimindwellness.com/retreat/2024/10/08/Dharani-Wellness-Retreat-July-27-31-2025.html) (yoga, meditation, life coaching) happening prior to this one at the same location. 
+[Back to other retreats](https://bodhimindwellness.com/)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
@@ -53,7 +54,7 @@ Our retreat will include the following in a flexible way to the group’s needs.
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Backk to all retreats](https://bodhimindwellness.com/)
 
 ## PROGRAM
 Here is an example of our program
@@ -88,7 +89,7 @@ Closing and Feedback with breakfast
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 ## TEACHERS
 
@@ -127,7 +128,7 @@ Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
-[See all retreats](https://bodhimindwellness.com/)
+[Back to all retreats](https://bodhimindwellness.com/)
 
 Do not hesitate to [contact us](https://tyltonline.github.io/contact/) for further info.
 
