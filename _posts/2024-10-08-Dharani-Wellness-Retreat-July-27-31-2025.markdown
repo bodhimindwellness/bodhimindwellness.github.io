@@ -10,6 +10,17 @@ categories: Retreat
 Sunday July 27 to Thursday 31, 2025 
 (5 days - 4 nights)
 
+## FEES:
+All retreat activities including food and accommodation.
+FLASH SALES : 50% discount on the whole retreat for the whole month of May 2025!!!
+
+### Shared accommodation
+Shared room with twin beds - 499 instead of 999 euros !!!
+Shared accommodation for couples - 899 instead of 1799 euros !!!
+
+### Single room
+Single room with a double bed - 599 instead of 1199 euros !!!
+
 ### LANGUAGE:
 English with French explanation
 
@@ -18,11 +29,9 @@ English with French explanation
 [See all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
-Easy yoga practice. Nature immersion. Cultural tour. All optional. Participate at your own pace, alone, with a buddy or your sweetheart for great intimate moments shared in wellness or why not as a group of friends or family for a healthy stay on a tropical paradise island.
+Easy yoga practice. Nature immersion. Cultural tour. 
 
 Enjoy a full-on ecotourist retreat where your day starts with a comfortable yoga practice (or time alone) followed by long walks in awesome nature spots in our endemic tropical forest on Mauritius island. Come back to relax on the white sandy beach and have a dip in the safe turquoise lagoon protected by coral reefs and nurtured by the Indian Ocean, finishing the day with a breathtaking sunset. On the third day, we’ll dab in the Mauritian cultural roots with a visit to our capital city of Port Louis, led by our facilitators.
-
-We have tried to bring the most out of the retreat in a gist of 5 days where you can take care of yourself, enjoy the sea, forest, rivers and waterfalls as well as have a tour in the capital city of Mauritius to get a short but sweet experience of the Mauritian culture. It is a good start for your stay in Mauritius where you can experience much more.
 
 
 Join our [Green Tara retreat](https://bodhimindwellness.com/jekyll/update/2024/10/01/Green-Tara-Retreat-August-1-3-2025.html) happening right after this one at the same location. 
@@ -34,43 +43,9 @@ Join our [Green Tara retreat](https://bodhimindwellness.com/jekyll/update/2024/1
 
 [Back to all retreats](https://bodhimindwellness.com/)
 
-## DESCRIPTION
-
-Join us for this exceptional retreat on the west coast of Mauritius island where the weather is warm during winter in the southern hemisphere (June-September). We will stay at a comfortable family-owned villa less than 5 minutes walk to the beach where our morning and evening classes will be held. We’ll enjoy authentic healthy Mauritian food.
-
-All activities are optional. So you can choose to skip any session or excursion.
-
-In this retreat, you will enjoy 
-+ Daily outdoor classes of hatha yoga consisting of postures, breathing techniques and meditation on the beach spread between morning and evening practice which is not compulsory. 
-+ Excursion in the tropical endemic forest*
-+ Excursion at a river and waterfall*
-+ Cultural visit to Port Louis*
-+ Beach and free time
-+ Night gathering 
-
-*Please note that all excursions are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule. 
-
-
-## FEATURES
-### Styles
-+ Hatha yoga - postures, breathing, relaxation, contemplation
-+ Laya yoga- chanting, chakra balancing
-+ Raja yoga- mindfulness and meditation
-
-+ Beach exploration
-+ Nature immersion walks
-+ Cultural tour to the capital city of Port Louis, discovering the multicultural Mauritian roots
-
-
-### Skill level:
-Newbie, Beginner, Intermediate 
-
-[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
-
-[Back to all retreats](https://bodhimindwellness.com/)
 
 ## PROGRAM
-All activities are optional. You can choose to be alone whenever you want to. All activities are subject to change according to the weather or any such unpredictable factors. We will do our best to stick to our proposed schedule but please allow flexibility.
+All activities are optional. Skip whichever you want. 
 Here is a sample day 2
 
 - 07:00	Yoga (optional)
@@ -81,14 +56,6 @@ Here is a sample day 2
 - 18:00	Dinner
 - 20:00	Night gathering
 - 21:00	Rest
-
-## FOOD
-Authentic delicious Mauritian food. It is a vast array of Indo-mauritian, Chinese-mauritian, European-mauritian and local creole flavours.
-
-Meals provided: breakfast, lunch and dinner
-The breakfast will be kept simple and homely with fresh fruits, juices, bread, cereals, milk, yogurt, etc. Lunch will be packed as we will be out in nature (days 2 & 3) or in Port Louis on day 4.
-
-Do not hesitate to let us know of your preferences and we’ll do our best to make it available.
  
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
@@ -99,11 +66,30 @@ Do not hesitate to let us know of your preferences and we’ll do our best to ma
 
 |<a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan") Dr Manjusha Coonjan </a>| <a href="https://bodhimindwellness.com/Team/"> ![Simla Lubah](/assets/images/simlacircle.jpg "Simla Lubah") Simla Lubah </a>| <a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani") Brahmani Laetitia </a> |
 
+## FOOD
+Authentic delicious Mauritian food. It is a vast array of Indo-mauritian, Chinese-mauritian, European-mauritian and local creole flavours. Meals provided: breakfast, lunch and dinner. Let us know of your preferences and we’ll do our best to make it available.
+
 ## LOCATION
 Villa Claire de Lune, Flic en Flac, Mauritius Island (See the video below)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+## ACCOMMODATION & FEES:
+(total cost of the retreat with food and accommodation according to the type of occupancy.)
+Flash sales : 50% discount on the whole retreat 
+
+### Shared accommodation
+Shared room with twin beds - 499 instead of 999 euros per participant
+Shared accommodation for couples - 899 instead of 1799 euros for both
+
+### Single room
+Single room with a double bed - 599 instead of 1199 euros per participant
+
+[Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
+
+[Back to all retreats](https://bodhimindwellness.com/)
+
+### more details...
 ### Flic en Flac
 Welcome to Flic en Flac, a stunning beach village in Mauritius renowned for its beautiful, mile-long stretch of warm beaches. The lagoon is teeming with vibrant reefs and captivating marine life, making it a perfect spot for aquatic adventures. For a quick swim during the retreat beachtime, grab your mask and snorkel to swim alongside butterfly fish, small groupers, and an array of colourful species. Wear water shoes for added comfort, as they protect your feet from rubbing against corals which break off naturally from the coral reef preserving the lagoon.
 
@@ -118,19 +104,6 @@ All the rooms are well-furnished, clean and well-aerated.
 Welcome to our charming family-owned beach house, just a five stroll from the sandy shores! This spacious three-storey villa features eight beautifully furnished bedrooms, offering both twin and double bed options, along with five modern bathrooms. Enjoy the perfect blend of community and privacy in our air-conditioned retreat, where you can relax in comfort. With clean, well-aerated rooms, we guarantee a delightful stay for you and your loved ones!
 
 
-## ACCOMMODATION & FEES:
-The following fees include the total cost of the retreat with food and accommodation, and varies according to the type of occupancy.
-
-### Shared accommodation
-Shared room with twin beds - 999 euros per participant
-
-Shared accommodation for couples - 1799 euros for both
-
-### Single room
-Single room with a double bed - 1199 euros per participant
-
-Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
-5% discounts on any type of accommodation.
 
 [Register for Dharani Wellness Retreat](https://bodhimindwellness.com/contact/)
 

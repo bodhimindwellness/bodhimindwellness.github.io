@@ -9,6 +9,17 @@ Retraite de bien-être yoga, nature et culture de 5 jours
 ### DATES:
 Du dimanche 27 juillet au jeudi 31 juillet 2025 (5 jours - 4 nuits)
 
+## TARIFS :
+Coût total de la retraite nourriture et hébergement inclus.
+VENTES FLASH : 50% de remise pour tout le mois de mai 2025!
+
+### Hébergement partagé
+Chambre partagée avec lits jumeaux - 499 au lieu de 999 euros !!!
+Hébergement partagé pour couples - 899 au lieu de 1799 euros !!!
+
+### Chambre simple
+Chambre individuelle avec un lit double - 599 au lieu de 1199 euros!!!
+
 ### LANGUE:
 En anglais avec explication en français
 
@@ -17,10 +28,9 @@ En anglais avec explication en français
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
 ## RÉSUMÉ
-Pratique facile du yoga. Immersion dans la nature. Visite culturelle. Tout en option. Participez à votre rythme, seul, avec un copain ou votre chéri pour de grands moments intimes partagés en bien-être ou pourquoi pas en groupe d’amis ou en famille pour un séjour sain sur une île tropicale paradisiaque.
+Pratique facile du yoga. Immersion dans la nature. Visite culturelle. 
 
 Profitez d’une retraite écotouristique complète où votre journée commence par une pratique confortable de yoga (ou du temps seul) suivie de longues promenades dans des endroits naturels impressionnants dans notre forêt tropicale endémique sur l’île Maurice. Revenez pour vous détendre sur la plage de sable blanc et prendre un bain dans le lagon turquoise protégé par les récifs coralliens et nourri par l’océan Indien, terminant la journée avec un coucher de soleil à couper le souffle. Le troisième jour, nous allons nous plonger dans les racines culturelles mauriciennes avec une visite de notre capitale Port Louis, dirigée par nos animateurs.
-Nous avons essayé de tirer le meilleur parti du séjour en 5 jours où vous pouvez prendre soin de vous, profiter de la mer, de la forêt, des rivières et cascades ainsi que d’avoir une visite dans la capitale de l’île Maurice pour obtenir une expérience courte mais douce de la culture mauricienne. C’est un bon début pour votre séjour à l’île Maurice où vous pourrez en découvrir beaucoup plus.
 
 Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au même endroit. [Voir](https://bodhimindwellness.com/retreat/2024/09/29/Retraite-Tara-Verte-1-3-ao%C3%BBt-2025.html)
 
@@ -31,46 +41,8 @@ Rejoignez notre retraite Tara Verte qui se déroulera juste après celle-ci au m
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
 
-
-## DESCRIPTION
-Rejoignez-nous pour cette superbe retraite de luxe sur la côte sud de l'île Maurice avec tout ce qu'il faut pour rendre votre séjour inoubliable. Faites une visite virtuelle pour avoir une idée de l'endroit fantastique qui vous attend. 
-
-Toutes les activités sont facultatives. Vous pouvez donc choisir de sauter une séance ou une excursion.
-
-Dans cette retraite, vous profiterez de: 
-+ Cours quotidiens de hatha yoga en plein air comprenant des postures, des techniques de respiration et de méditation sur la plage réparties entre la pratique du matin et le soir qui n’est pas obligatoire. 
-+ Excursion dans la forêt tropicale endémique*
-+ Excursion à une rivière et cascade*
-+ Visite culturelle à Port-Louis*
-+ Plage et temps libre
-+ Reunion de partage  
-
-*Veuillez noter que toutes les excursions sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé.
-
-
-[Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
-
-[Voir toutes les retraites](https://bodhimindwellness.com/)
-
-## CARACTÉRISTIQUES
-### Styles
-+ Hatha yoga - postures, respiration, relaxation, contemplation
-+ Laya yoga - chant, équilibrage des chakras
-+ Raja yoga – pleine conscience et méditation
-
-+ Profiter de la plage
-+ Promenades en immersion dans la nature
-+ Visite culturelle de la capitale Port Louis, à la découverte des racines multiculturelles mauriciennes
-
-
-### Niveau de compétence :
-Débutant, Intermédiaire
-
-Inscrivez-vous à la retraite bien-être Dharani
-Voir toutes les retraites
-
 ### PROGRAMME
-Toutes les activités sont facultatives. Vous pouvez choisir d’être seul quand vous le voulez. Toutes les activités sont sujettes à changement en fonction de la météo ou de facteurs imprévisibles. Nous ferons de notre mieux pour respecter le calendrier proposé, mais veuillez faire preuve de souplesse.
+Toutes les activités sont facultatives. CHoisissez ce qui vous plait.
 Voici un exemple de jour 2
 
 - 07:00	Yoga (facultatif) 
@@ -87,14 +59,8 @@ Voici un exemple de jour 2
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
 ## NOURRITURE
-Cuisine mauricienne authentique, végétarienne et végétalienne. Il s'agit d'un vaste éventail de saveurs indo-mauriciennes, chinoises-mauriciennes, européennes-mauriciennes et créoles locales.
+Cuisine mauricienne authentique, végétarienne et végétalienne. Il s'agit d'un vaste éventail de saveurs indo-mauriciennes, chinoises-mauriciennes, européennes-mauriciennes et créoles locales. Repas proposés : petit-déjeuner, déjeuner et dîner. N'hésitez pas à nous faire part de vos préférences et nous ferons de notre mieux pour les rendre disponibles.
 
-Repas proposés : petit-déjeuner, déjeuner et dîner. Le petit-déjeuner sera simple et familial avec fruits frais, jus de fruits, pain, céréales, lait, yaourts, etc. N'hésitez pas à nous faire part de vos préférences et nous ferons de notre mieux pour les rendre disponibles.
-
-Le déjeuner et le dîner seront préparés par notre traiteur local, Kevin, qui nous propose une grande variété de plats mauriciens.
-
-Inscrivez-vous à la retraite bien-être Dharani
-Voir toutes les retraites
 
 ## ENSEIGNANTS
 
@@ -109,6 +75,18 @@ Villa Claire de Lune, Flic en Flac, Île Maurice (voir la vidéo ci-dessous)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+## HÉBERGEMENT & TARIFS :
+Les frais suivants incluent le coût total de la retraite avec nourriture et hébergement, et varient selon le type d'occupation.
+### Hébergement partagé
+Chambre partagée avec lits jumeaux - 499 au lieu de 999 euros par participant !!!
+
+Hébergement partagé pour couples - 899 au lieu de 1799 euros pour les deux
+
+### Chambre simple
+Chambre individuelle avec un lit double -  599 au lieu de 1199 euros par participant
+
+
+### plus de détails...
 ### Flic en Flac
 Bienvenue à Flic en Flac, un magnifique village de plage à l’île Maurice réputé pour ses belles plages chaudes qui s’étendent sur plusieurs kilomètres. Le lagon regorge de récifs vibrants et d’une vie marine captivante, ce qui en fait un endroit idéal pour les aventures aquatiques. Pour une baignade rapide pendant la retraite, prenez votre masque et votre tuba pour nager aux côtés de poissons papillons, de petits mérous et d’un éventail d’espèces colorées. Portez des chaussures d’eau pour plus de confort, car elles protègent vos pieds contre les frottements contre les coraux qui se détachent naturellement du récif corallien préservant le lagon.
 
@@ -123,17 +101,9 @@ Nous vous offrons la possibilité de prolonger votre séjour après la retraite 
 Bienvenue dans notre charmante maison de plage familiale, à seulement cinq minutes à pied des plages de sable! Cette spacieuse villa de trois étages dispose de huit chambres joliment meublées, offrant des options de lits jumeaux et doubles, ainsi que cinq salles de bains modernes. Profitez du mélange parfait de communauté et d’intimité dans notre retraite climatisée, où vous pourrez vous détendre dans le confort. Avec des chambres propres et bien aérées, nous vous garantissons un séjour agréable pour vous et vos proches!
 
 
-## HÉBERGEMENT & TARIFS :
-Les frais suivants incluent le coût total de la retraite avec nourriture et hébergement, et varient selon le type d'occupation.
-### Hébergement partagé
-Chambre partagée avec lits jumeaux - 999 euros par participant
 
-Hébergement partagé pour couples - 1799 euros pour les deux
 
-### Chambre simple
-Chambre individuelle avec un lit double - 1199 euros par participant
 
-Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur tout type d'hébergements.
 
 [Inscrivez-vous à la retraite bien-être Dharani](https://bodhimindwellness.com/contact/)
 

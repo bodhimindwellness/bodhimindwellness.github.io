@@ -8,6 +8,14 @@ Retraite de mieux-être de 3 jours
 
 ### DATES:
 Du vendredi 1er au dimanche 3 août 2025 (3 jours - 2 nuits)
+
+## TARIFS :
+Coût TOTAL de la retraite, nourriture et hébergement inclus.
+### Hébergement partagé
+En chambre partagée  : 229 au lieu de 459 euros !!!
+### Chambre simple
+Chambre simple avec un lit double : 289 au ai lieu de 579 euros !!!
+
 ### LANGUE:
 En français avec traduction anglaise.
 
@@ -16,13 +24,10 @@ En français avec traduction anglaise.
 [Retraite bien-être Dharani juil 27-31 2025](https://bodhimindwellness.com/)
 
 ## RÉSUMÉ
-Peut-être que vous essayez cette retraite par curiosité, sans savoir comment elle pourrait changer votre vision de la vie ou votre état d’esprit.
-
-Parfois, nous sommes à la recherche d'une petite pause avec des personnes qui nous ressemblent, d'un moment de partage ludique et de rires sans le sérieux habituel d'une vie contrôlée par l'horloge. La vie devient soudain légère et pleine de bonheur. Avoir un soutien spirituel comme Tara Verte nous aide à apporter cette légèreté.
-
-Cette immersion de 3 jours avec la Mère Divine sous la forme de Tara Verte apportera certainement une connexion plus profonde avec la Terre Mère et votre part féminine de compassion, de paix, de fluidité, d'amour, de générosité. Nous pratiquons une sadhana très simple mais puissante. La pratique de Tara Verte est ouverte à tous et ne se limite pas à une certaine lignée. La conscience de groupe est essentielle, elle agit comme un catalyseur pour que nos vibrations résonnent en union comme le son des différentes cordes d'une guitare crée un ensemble complexe - la musique.
+Cette immersion de 3 jours avec la Mère Divine sous la forme de Tara Verte apportera certainement une connexion plus profonde avec la Terre Mère et votre part féminine de compassion, de paix, de fluidité, d'amour, de générosité. Nous pratiquons une sadhana très simple mais puissante. La pratique de Tara Verte est ouverte à tous et ne se limite pas à une certaine lignée. La conscience de groupe agit comme un catalyseur dans notre cheminement spirituel.
 
 Nous aurons une introduction à la philosophie bouddhiste, allons apprendre une pratique simple de Tara Verte, profiter d'activités créatives, nous connecter aux 5 éléments de la Nature et de l'Existence.
+
 Rejoignez notre retraite bien-être Dharani (yoga, méditation, coaching de vie) qui se déroule avant celle-ci au même endroit. 
 
 [Retraite bien-être Dharani juil 27-31 2025](https://bodhimindwellness.com/)
@@ -33,26 +38,6 @@ Rejoignez notre retraite bien-être Dharani (yoga, méditation, coaching de vie)
 
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
-## DESCRIPTION
-Notre retraite comprendra les éléments suivants de manière flexible en fonction des besoins du groupe.
-+ Introduction à une pratique simple de Tara Verte
-+ Introduction à la philosophie bouddhiste
-+ Cours de yoga léger
-+ Pleine conscience
-+ La pleine conscience en action à travers des activités artistiques comme le dessin, la peinture, la danse, etc.
-+ Le temps de profiter de la plage et de prendre du temps pour soi.
-
-## CARACTÉRISTIQUES
-### Styles
-Hatha yoga - postures, respiration, relaxation, contemplation
-Laya yoga – chant
-Raja yoga – pleine conscience et méditation
-Karma yoga - au service des autres (s'entraider, assister l'enseignant, redonner à l'espace)
-Niveau de compétence : ouvert à tous
-
-[Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
-
-[Voir toutes les retraites](https://bodhimindwellness.com/)
 ## PROGRAMME
 Voici un exemple de notre programme
 
@@ -96,6 +81,18 @@ Villa Claire de Lune, Flic en Flac, Île Maurice (voir la vidéo ci-dessous)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+## HÉBERGEMENT & TARIFS :
+Les frais suivants incluent le coût TOTAL de la retraite avec nourriture et hébergement et varient selon le type d'occupation.
+### Hébergement partagé
+En chambre partagée avec lits jumeaux ou literie allemande (premier arrivé, premier servi) : 229 au lieu de 459 euros par participant
+### Chambre simple
+Chambre simple avec un lit double : 289 au lieu de 579 euros
+
+[Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
+
+[Voir toutes les retraites](https://bodhimindwellness.com/)
+
+### plus de détails...
 ### Flic en Flac
 Bienvenue à Flic en Flac, un magnifique village de plage à l’île Maurice réputé pour ses belles plages chaudes qui s’étendent sur plusieurs kilomètres. Le lagon regorge de récifs vibrants et d’une vie marine captivante, ce qui en fait un endroit idéal pour les aventures aquatiques. Pour une baignade rapide pendant la retraite, prenez votre masque et votre tuba pour nager aux côtés de poissons papillons, de petits mérous et d’un éventail d’espèces colorées. Portez des chaussures d’eau pour plus de confort, car elles protègent vos pieds contre les frottements contre les coraux qui se détachent naturellement du récif corallien préservant le lagon.
 
@@ -109,15 +106,6 @@ Nous vous offrons la possibilité de prolonger votre séjour après la retraite 
 ### Villa Claire de Lune
 Bienvenue dans notre charmante maison de plage familiale, à seulement cinq minutes à pied des plages de sable! Cette spacieuse villa de trois étages dispose de huit chambres joliment meublées, offrant des options de lits jumeaux et doubles, ainsi que cinq salles de bains modernes. Profitez du mélange parfait de communauté et d’intimité dans notre retraite climatisée, où vous pourrez vous détendre dans le confort. Avec des chambres propres et bien aérées, nous vous garantissons un séjour agréable pour vous et vos proches!
 
-
-## HÉBERGEMENT & TARIFS :
-Les frais suivants incluent le coût TOTAL de la retraite avec nourriture et hébergement et varient selon le type d'occupation.
-### Hébergement partagé
-En chambre partagée avec lits jumeaux ou literie allemande (premier arrivé, premier servi) : 459 euros par participant
-### Chambre simple
-Chambre simple avec un lit double : 579 euros
-
-Profitez de nos TARIFS EARLY BIRD jusqu'au 15 mars 2025 !!! 5% de réduction sur les hébergements partagés si vous venez en couple. CHACUN d'entre vous bénéficie d'une réduction de 5% sur le montant total des frais.
 
 [Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
 
