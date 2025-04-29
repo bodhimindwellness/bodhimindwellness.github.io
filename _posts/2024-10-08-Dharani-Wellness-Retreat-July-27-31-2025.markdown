@@ -12,13 +12,13 @@ Sunday July 27 to Thursday 31, 2025
 
 ## FEES:
 All retreat activities including food and accommodation.
+
 FLASH SALES : 50% discount on the whole retreat for the whole month of May 2025!!!
 
-### Shared accommodation
 Shared room with twin beds - 499 instead of 999 euros !!!
+
 Shared accommodation for couples - 899 instead of 1799 euros !!!
 
-### Single room
 Single room with a double bed - 599 instead of 1199 euros !!!
 
 ### LANGUAGE:
