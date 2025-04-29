@@ -11,13 +11,11 @@ Friday August 1 to Sunday 3, 2025
 (3 days - 2 nights)
 
 ## FEES:
-All retreat activities including food and accommodation.
+All retreat activities including food and accommodation. FLASH SALES : 
+50% discount on the whole retreat for the whole month of May 2025!!!
 
-FLASH SALES : 50% discount on the whole retreat for the whole month of May 2025!!!
-
-In shared room with twin beds : 229 instead of 459 euros!!!
-
-Single room with a double bed: 289 instead of 579 euros!!!
+- Shared room : 229 instead of 459 euros!!!
+- Single room : 289 instead of 579 euros!!!
 
 ### LANGUAGE:
 French with English Translation.
