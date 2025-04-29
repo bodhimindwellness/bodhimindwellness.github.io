@@ -10,11 +10,11 @@ Retraite de bien-être yoga, nature et culture de 5 jours
 Du dimanche 27 juillet au jeudi 31 juillet 2025 (5 jours - 4 nuits)
 
 ## TARIFS :
-Coût total de la retraite nourriture et hébergement inclus.
-VENTES FLASH : 50% de remise pour tout le mois de mai 2025!
-Chambre partagée avec lits jumeaux - 499 au lieu de 999 euros !!!
-Hébergement partagé pour couples - 899 au lieu de 1799 euros !!!
-Chambre individuelle avec un lit double - 599 au lieu de 1199 euros!!!
+Coût total de la retraite nourriture et hébergement inclus. VENTES FLASH : 
+50% de remise pour tout le mois de mai 2025!
+- Chambre partagée avec lits jumeaux - 499 au lieu de 999 euros !!!
+- Cahmbre partagé pour couples - 899 au lieu de 1799 euros !!!
+- Chambre individuelle - 599 au lieu de 1199 euros!!!
 
 ### LANGUE:
 En anglais avec explication en français

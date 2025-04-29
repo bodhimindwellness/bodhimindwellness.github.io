@@ -10,10 +10,10 @@ Retraite de mieux-être de 3 jours
 Du vendredi 1er au dimanche 3 août 2025 (3 jours - 2 nuits)
 
 ## TARIFS :
-Coût TOTAL de la retraite, nourriture et hébergement inclus.
-VENTES FLASH : 50% de remise pour tout le mois de mai 2025!
-En chambre partagée  : 229 au lieu de 459 euros !!!
-Chambre simple avec un lit double : 289 au ai lieu de 579 euros !!!
+Coût TOTAL de la retraite, nourriture et hébergement inclus. VENTES FLASH : 
+50% de remise pour tout le mois de mai 2025!
+- Chambre partagée  : 229 au lieu de 459 euros !!!
+- Chambre simple : 289 au ai lieu de 579 euros !!!
 
 ### LANGUE:
 En français avec traduction anglaise.
