@@ -7,8 +7,18 @@ categories: jekyll update
 3 Day Wellbeing Retreat
 
 ### DATES:
-Friday August 1 to Sunday 3 2025
+Friday August 1 to Sunday 3, 2025
 (3 days - 2 nights)
+
+## FEES:
+All retreat activities including food and accommodation.
+FLASH SALES : 50% discount on the whole retreat for the whole month of May 2025!!!
+
+### Shared accommodation
+In shared room with twin beds : 229 instead of 459 euros!!!
+
+### Single room
+Single room with a double bed: 289 instead of 579 euros!!!
 
 ### LANGUAGE:
 French with English Translation.
@@ -18,11 +28,7 @@ French with English Translation.
 [Back to all retreats](https://bodhimindwellness.com/)
 
 ## SUMMARY
-Maybe you are checking this retreat out of curiosity not knowing how it may change your outlook on life or mindset. 
-
-Sometimes we are in search of a small pause with like-minded people, sharing time in a playful mode with laughter without the usual seriousness of a life controlled by the clock. Life suddenly becomes light and full of happiness. Having spiritual support like the Green Tara helps us bring this lightness.
-
-This 3-day immersion with the Divine Mother in the form of Green Tara will definitely bring a more profound connection with Mother Earth and your feminine part of compassion, peace, fluidity, love, generosity. We will practise a very simple yet powerful sadhana. Green Tara practice is open to all and not confined to a certain lineage. The group consciousness is essential, it acts as a catalyst for our vibrations to resonate in union as the plucking of different strings of a guitar makes a complex ensemble - music .
+This 3-day immersion with the Divine Mother in the form of Green Tara will definitely bring a more profound connection with Mother Earth and your feminine part of compassion, peace, fluidity, love, generosity. We will practise a very simple yet powerful sadhana. Green Tara practice is open to all and not confined to a certain lineage. The group consciousness acts as a catalyst in our spiritual journey. 
 
 We will have an introduction to Buddhist philosophy, learn a simple Green Tara practice, enjoy creative activities, connect with the 5 elements of Nature and Existence.
 
@@ -33,28 +39,6 @@ Join our [Dharani Wellness Retrea](https://bodhimindwellness.com/retreat/2024/10
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
-## DESCRIPTION
-Our retreat will include the following in a flexible way to the group’s needs.
-+ Introduction to a simple practice of Green Tara
-+ Introduction to the buddhist philosophy
-+ Light yoga class
-+ Mindfulness
-+ Mindfulness in action through artistic activities like drawing, painting, dancing, etc
-+ Time to enjoy the beach/me-time.
-
-
-## FEATURES
-### Styles
-+ Hatha yoga - postures, breathing, relaxation, contemplation
-+ Laya yoga- chanting
-+ Raja yoga- mindfulness and meditation
-+ Karma yoga- in service to others (helping each other, assisting the teacher, giving back to the space)
-
-### Skill level: open to all
-
-[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
-
-[Backk to all retreats](https://bodhimindwellness.com/)
 
 ## PROGRAM
 Here is an example of our program
@@ -100,6 +84,20 @@ Villa Claire de Lune, Flic en Flac, Mauritius Island (See video below)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
+## ACCOMMODATION & FEES:
+The following fees include the total cost of the retreat with food and accommodation and varies according to the type of occupancy.
+
+### Shared accommodation
+In shared room with twin beds or German bedding (first come first serve): 229 instead of 459 euros!!!
+
+### Single room
+Single room with a double bed: 289 instead of 579 euros!!!
+
+[Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
+
+[Backk to all retreats](https://bodhimindwellness.com/)
+
+### more details...
 ### Flic en Flac
 Welcome to Flic en Flac, a stunning beach village in Mauritius renowned for its beautiful, mile-long stretch of warm beaches. The lagoon is teeming with vibrant reefs and captivating marine life, making it a perfect spot for aquatic adventures. For a quick swim during the retreat beachtime, grab your mask and snorkel to swim alongside butterfly fish, small groupers, and an array of colourful species. Wear water shoes for added comfort, as they protect your feet from rubbing against corals which break off naturally from the coral reef preserving the lagoon.
 
@@ -114,17 +112,7 @@ All the rooms are well-furnished, clean and well-aerated.
 Welcome to our charming family-owned beach house, just a five stroll from the sandy shores! This spacious three-storey villa features eight beautifully furnished bedrooms, offering both twin and double bed options, along with five modern bathrooms. Enjoy the perfect blend of community and privacy in our air-conditioned retreat, where you can relax in comfort. With clean, well-aerated rooms, we guarantee a delightful stay for you and your loved ones!
 
 
-## ACCOMMODATION & FEES:
-The following fees include the total cost of the retreat with food and accommodation and varies according to the type of occupancy.
 
-### Shared accommodation
-In shared room with twin beds or German bedding (first come first serve): 459 euros each participant
-
-### Single room
-Single room with a double bed: 579 euros
-
-Take advantage of our EARLY BIRD PRICES till 15th March 2025!!!
-5% discounts on shared accommodation if you are coming with a partner. EACH of you gets a 5% discount on the total fees.
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
