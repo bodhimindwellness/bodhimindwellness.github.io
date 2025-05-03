@@ -13,7 +13,7 @@ Du dimanche 27 juillet au jeudi 31 juillet 2025 (5 jours - 4 nuits)
 Coût total de la retraite nourriture et hébergement inclus. VENTES FLASH : 
 50% de remise pour tout le mois de mai 2025!
 - Chambre partagée avec lits jumeaux - 499 au lieu de 999 euros !!!
-- Cahmbre partagé pour couples - 899 au lieu de 1799 euros !!!
+- Chambre partagé pour couples - 899 au lieu de 1799 euros !!!
 - Chambre individuelle - 599 au lieu de 1199 euros!!!
 
 ### LANGUE:
