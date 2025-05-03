@@ -67,10 +67,10 @@ Here is a sample day 2
 ## FOOD
 Authentic delicious Mauritian food. It is a vast array of Indo-mauritian, Chinese-mauritian, European-mauritian and local creole flavours. Meals provided: breakfast, lunch and dinner. Let us know of your preferences and we’ll do our best to make it available.
 
-## LOCATION
-Villa Claire de Lune, Flic en Flac, Mauritius Island (See the video below)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xi3w_0UFU0Y?si=tsSZCjlgtNO20O5l" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
 
 ## ACCOMMODATION & FEES:
 Total cost of the retreat with food and accommodation according to the type of occupancy
@@ -89,7 +89,12 @@ Single room with a double bed - 599 instead of 1199 euros per participant
 
 [Back to all retreats](https://bodhimindwellness.com/)
 
-### more details...
+
+## LOCATION
+Villa Claire de Lune, Flic en Flac, Mauritius Island (See the video below)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
 ### Flic en Flac
 Welcome to Flic en Flac, a stunning beach village in Mauritius renowned for its beautiful, mile-long stretch of warm beaches. The lagoon is teeming with vibrant reefs and captivating marine life, making it a perfect spot for aquatic adventures. For a quick swim during the retreat beachtime, grab your mask and snorkel to swim alongside butterfly fish, small groupers, and an array of colourful species. Wear water shoes for added comfort, as they protect your feet from rubbing against corals which break off naturally from the coral reef preserving the lagoon.
 
