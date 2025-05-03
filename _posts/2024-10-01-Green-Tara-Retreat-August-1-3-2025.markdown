@@ -77,10 +77,7 @@ Closing and Feedback with breakfast
 
 |<a href="https://bodhimindwellness.com/Team/"> ![Laetita Brahmani](/assets/images/laetitiacircle.jpg "Laetita Brahmani")Brahmani Laetitia </a> | <a href="https://bodhimindwellness.com/Team/"> ![Dr Manjusha Coonjan](/assets/images/manjushacircle.jpg "Dr Manjusha Coonjan" ) Dr Manjusha Coonjan</a> | 
 
-## LOCATION
-Villa Claire de Lune, Flic en Flac, Mauritius Island (See video below)
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xi3w_0UFU0Y?si=tsSZCjlgtNO20O5l" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## ACCOMMODATION & FEES:
 The following fees include the total cost of the retreat with food and accommodation and varies according to the type of occupancy.
@@ -95,7 +92,11 @@ Single room with a double bed: 289 instead of 579 euros!!!
 
 [Backk to all retreats](https://bodhimindwellness.com/)
 
-### more details...
+## LOCATION
+Villa Claire de Lune, Flic en Flac, Mauritius Island (See video below)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xh1wcKeYqs?autoplay=1&mute=1&loop=1&playlist=6xh1wcKeYqs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
 ### Flic en Flac
 Welcome to Flic en Flac, a stunning beach village in Mauritius renowned for its beautiful, mile-long stretch of warm beaches. The lagoon is teeming with vibrant reefs and captivating marine life, making it a perfect spot for aquatic adventures. For a quick swim during the retreat beachtime, grab your mask and snorkel to swim alongside butterfly fish, small groupers, and an array of colourful species. Wear water shoes for added comfort, as they protect your feet from rubbing against corals which break off naturally from the coral reef preserving the lagoon.
 

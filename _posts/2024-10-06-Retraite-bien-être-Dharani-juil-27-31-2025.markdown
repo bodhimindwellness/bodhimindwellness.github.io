@@ -67,10 +67,8 @@ Cuisine mauricienne authentique, végétarienne et végétalienne. Il s'agit d'u
 
 [Voir toutes les retraites](https://bodhimindwellness.com/)
 
-## EMPLACEMENT
-Villa Claire de Lune, Flic en Flac, Île Maurice (voir la vidéo ci-dessous)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xi3w_0UFU0Y?si=tsSZCjlgtNO20O5l" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ## HÉBERGEMENT & TARIFS :
 Les frais suivants incluent le coût total de la retraite avec nourriture et hébergement, et varient selon le type d'occupation.
@@ -84,7 +82,11 @@ Hébergement partagé pour couples - 899 au lieu de 1799 euros pour les deux
 Chambre individuelle avec un lit double -  599 au lieu de 1199 euros par participant
 
 
-### plus de détails...
+## EMPLACEMENT
+Villa Claire de Lune, Flic en Flac, Île Maurice (voir la vidéo ci-dessous)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
 ### Flic en Flac
 Bienvenue à Flic en Flac, un magnifique village de plage à l’île Maurice réputé pour ses belles plages chaudes qui s’étendent sur plusieurs kilomètres. Le lagon regorge de récifs vibrants et d’une vie marine captivante, ce qui en fait un endroit idéal pour les aventures aquatiques. Pour une baignade rapide pendant la retraite, prenez votre masque et votre tuba pour nager aux côtés de poissons papillons, de petits mérous et d’un éventail d’espèces colorées. Portez des chaussures d’eau pour plus de confort, car elles protègent vos pieds contre les frottements contre les coraux qui se détachent naturellement du récif corallien préservant le lagon.
 
