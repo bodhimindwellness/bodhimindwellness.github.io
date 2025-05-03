@@ -11,8 +11,9 @@ Sunday July 27 to Thursday 31, 2025
 (5 days - 4 nights)
 
 ## FEES:
-All retreat activities including food and accommodation. FLASH SALES : 
-50% discount on the whole retreat for the whole month of May 2025!!!
+All retreat activities including food and accommodation. FLASH SALES :
+
+<b>50% discount for the whole month of May 2025!!!</b>
 
 - Shared room with twin beds - 499 instead of 999 euros !!!
 - Shared accommodation for couples - 899 instead of 1799 euros !!!
@@ -72,11 +73,13 @@ Villa Claire de Lune, Flic en Flac, Mauritius Island (See the video below)
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qUdy8ncbJWs?autoplay=1&mute=1&loop=1&playlist=qUdy8ncbJWs" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ## ACCOMMODATION & FEES:
-(total cost of the retreat with food and accommodation according to the type of occupancy.)
+Total cost of the retreat with food and accommodation according to the type of occupancy
+
 Flash sales : 50% discount on the whole retreat 
 
 ### Shared accommodation
 Shared room with twin beds - 499 instead of 999 euros per participant
+
 Shared accommodation for couples - 899 instead of 1799 euros for both
 
 ### Single room
