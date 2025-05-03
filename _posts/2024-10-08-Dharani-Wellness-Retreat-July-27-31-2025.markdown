@@ -15,9 +15,9 @@ All retreat activities including food and accommodation. FLASH SALES :
 
 <b>50% discount for the whole month of May 2025!!!</b>
 
-- Shared room with twin beds - 499 instead of 999 euros !!!
-- Shared accommodation for couples - 899 instead of 1799 euros !!!
-- Single room with a double bed - 599 instead of 1199 euros !!!
+- Shared room with twin beds - <b>499</b> instead of 999 euros !!!
+- Shared accommodation for couples - <b>899</b> instead of 1799 euros !!!
+- Single room with a double bed - <b>599</b> instead of 1199 euros !!!
 
 ### LANGUAGE:
 English with French explanation

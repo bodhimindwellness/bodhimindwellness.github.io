@@ -3,7 +3,10 @@ layout: page
 title: Reviews
 permalink: /reviews/
 ---
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xi3w_0UFU0Y?si=tsSZCjlgtNO20O5l" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 ## Past retreats
+
 ### March 2017 retreat
 ![March 2017 Retreat](/assets/images/mar2017retreat.jpg "March 2017 Retreat")
 
