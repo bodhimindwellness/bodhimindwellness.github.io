@@ -15,8 +15,8 @@ All retreat activities including food and accommodation. FLASH SALES :
 
 <b>50% discount for the whole month of May 2025!!!</b>
 
-- Shared room : 229 instead of 459 euros!!!
-- Single room : 289 instead of 579 euros!!!
+- Shared room : <b>229</b> instead of 459 euros!!!
+- Single room : <b>289</b> instead of 579 euros!!!
 
 ### LANGUAGE:
 French with English Translation.
