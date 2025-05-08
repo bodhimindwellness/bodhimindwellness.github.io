@@ -10,7 +10,7 @@ Retraite de mieux-être de 3 jours
 Du vendredi 1er au dimanche 3 août 2025 (3 jours - 2 nuits)
 
 ## TARIFS :
-Coût TOTAL de la retraite, nourriture et hébergement inclus. VENTE FLASH :
+Coût total de la retraite incluant transfert aéroport, nourriture et hébergement. VENTE FLASH :
 
 <b>50% de remise pour tout le mois de mai 2025!</b>
 - Chambre partagée  : <b>229</b> au lieu de 459 euros !!!
@@ -108,6 +108,19 @@ Nous vous offrons la possibilité de prolonger votre séjour après la retraite 
 ### Villa Claire de Lune
 Bienvenue dans notre charmante maison de plage familiale, à seulement cinq minutes à pied des plages de sable! Cette spacieuse villa de trois étages dispose de huit chambres joliment meublées, offrant des options de lits jumeaux et doubles, ainsi que cinq salles de bains modernes. Profitez du mélange parfait de communauté et d’intimité dans notre retraite climatisée, où vous pourrez vous détendre dans le confort. Avec des chambres propres et bien aérées, nous vous garantissons un séjour agréable pour vous et vos proches!
 
+## Comment se rendre au centre
+### <b>Service de navette gratuit</b>
+Le meilleur moyen de se rendre à l’aéroport ou d’en revenir est par taxi ou transport privé/loué, car les bus et trains ne desservent pas l’aéroport. <b>Nous fournissons une navette gratuite pour le ramassage à l’aéroport à 12h le jour 1 et le retour au lieu de rendez-vous à 11h le jour 5.</b> Le trajet dure environ une heure en fonction du trafic. N’hésitez pas à communiquer avec nous si vous arrivez à une autre heure. Nous ferons de notre mieux pour vous aider.
+
+### En taxi
+Vous pouvez simplement partager l’adresse avec le chauffeur de taxi :
+Villa Clair de Lune, Av. Pailles en Queue, Flic en Flac avec les détails suivants
+Vous passerez le poste de police de Flic en Flac, continuez sur la route côtière jusqu’à l’hôtel Manisa. Tournez à gauche juste après l’hôtel. Prendre la première à gauche puis la première à droite. La route tournera à gauche. Nous sommes la troisième propriété sur la gauche.
+Lors de l’inscription, nous partagerons nos numéros locaux privés où vous pouvez nous contacter directement. 
+
+### En voiture
+Nous roulons sur la gauche. Voici une idée générale de comment vous y rendre. En sortant de l’aéroport SSRN, prenez la première sortie au rond-point. Au deuxième rond-point, prendre la deuxième sortie. Au troisième rond-point, il n’y a qu’une seule sortie après avoir complété les trois quarts du cercle, en direction de Port-Louis. Au quatrième rond-point, rejoindre le M2 et suivre la route en direction de Port-Louis jusqu’au rond-point Highlands. Juste après, vous verrez le centre commercial Le Valentina sur la gauche. Quittez les 2 premières sorties, puis prenez la troisième en direction du centre commercial de Phoenix et prenez le Phoenix-Beaux Songes Link Rd jusqu’à Beaux Songes puis A3 jusqu’à Cascavelle qui vous mènera à la route côtière. Continuer jusqu’au poste de police de Flic en Flac. Rester sur la route côtière jusqu’à l’hôtel Manisa après quoi vous pouvez tourner à gauche. Prendre la première à gauche puis la première à droite. La route tournera à gauche. Nous sommes la troisième propriété sur la gauche.
+Lors de l’inscription, nous partagerons nos numéros locaux privés où vous pouvez nous contacter directement. 
 
 [Inscrivez-vous à la retraite Tara Verte](https://bodhimindwellness.com/contact/)
 

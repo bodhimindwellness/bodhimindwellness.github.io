@@ -11,7 +11,7 @@ Friday August 1 to Sunday 3, 2025
 (3 days - 2 nights)
 
 ## FEES:
-All retreat activities including food and accommodation. FLASH SALES : 
+include airport transfer, all retreat activities including food and accommodation.. FLASH SALES : 
 
 <b>50% discount for the whole month of May 2025!!!</b>
 
@@ -110,8 +110,19 @@ All the rooms are well-furnished, clean and well-aerated.
 
 Welcome to our charming family-owned beach house, just a five stroll from the sandy shores! This spacious three-storey villa features eight beautifully furnished bedrooms, offering both twin and double bed options, along with five modern bathrooms. Enjoy the perfect blend of community and privacy in our air-conditioned retreat, where you can relax in comfort. With clean, well-aerated rooms, we guarantee a delightful stay for you and your loved ones!
 
+## How to get to the centre
+### <b>Free shuttle service</b>
+The best way to travel to or from the airport is by taxi or private/hired transportation as there  public transport that is buses or trains do not serve the airport. <b>We provide a free shuttle for pick up at the airport at 12pm on day 1 and drop off from the venue at 11 am on day 5.</b> The trip lasts about one hour depending on the traffic. Do not hesitate to contact us if you are coming at a different time. We will do our best to help.
 
+### By taxi
+You may simply share the address with the taxi driver:
+Villa Clair de Lune, Av. Pailles en Queue, Flic en Flac with the following details
+You will pass the Flic en Flac police station, continue on the coastal road till Manisa hotel. Turn left just after the hotel. Take the first left then first right. The road will turn to the left. We are the third property on the left.
+Upon registration, we will share our private local numbers where you can contact us directly. 
 
+### By car
+We drive on the left-hand side. Here is a general idea on how you can get there. As you exit from SSRN airport, take the first exit at the roundabout. At the second roundabout, take the second exit. At the third roundabout, there is only one exit after completing three quarters of the circle, towards Port-Louis. At the fourth roundabout, join the M2 and follow the way in the direction of Port-Louis until Highlands roundabout. Just after that, you will see Le Valentine Shopping Mall on the left. Leave the first 2 exits, then take the third one towards Phoenix commercial centre and take the Phoenix-Beaux Songes Link Rd till Beaux Songes then A3 until Cascavelle which will lead you to the coastal road. Continue to Flic en Flac Police station. Stay on the coastal road till Manisa hotel after which you can turn left. Take the first left then first right. The road will turn to the left. We are the third property on the left.
+Upon registration, we will share our private local numbers where you can contact us directly. 
 
 [Register for Green Tara Retreat](https://bodhimindwellness.com/contact/)
 
