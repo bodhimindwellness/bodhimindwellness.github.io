@@ -11,7 +11,7 @@ Friday August 1 to Sunday 3, 2025
 (3 days - 2 nights)
 
 ## FEES:
-include airport transfer, all retreat activities including food and accommodation.. FLASH SALES : 
+include airport transfer, all retreat activities, food and accommodation.. FLASH SALES : 
 
 <b>50% discount for the whole month of May 2025!!!</b>
 
